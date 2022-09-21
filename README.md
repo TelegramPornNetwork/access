@@ -1,9 +1,9 @@
-# Telegram Porn Network
+# Telegram Porn Network 🔞 (18+ only)
 
 Welcome to the Telegram Porn Network. If you are looking for your **daily dose of fresh porn** you found the **absolute right place**!
 We are operating 15 different channels, gathering to any of your perverted (legal) needs ;)
 
-Thousands of HQ Pictures, Gifs and Videos, in dozens of categories are awaiting you!
+🔥 Thousands of HQ Pictures, Gifs and Videos, in dozens of categories are awaiting you!
 
 
 
@@ -41,3 +41,10 @@ Thousands of HQ Pictures, Gifs and Videos, in dozens of categories are awaiting 
 | [ shareyagirlfriend](https://t.me/shareyagirlfriend) | Share Your Girlfriend 🔞 | ✅ |
 
 
+
+---
+
+These channels are automatically currated based on varius media sources. We are always trying to keep the quality high and the media
+related to the channels. There is plenty of automated and human moderation in place to assure there is nothing illegal in any of these channels.
+
+If you are looking for daily random porn on the go, **Telegram Porn Network** is the solution for you
