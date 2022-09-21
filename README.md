@@ -37,9 +37,3 @@ We are operating 15 different channels, gathering to any of your perverted (lega
 | [ shareyadick](https://t.me/shareyadick) | Share Your Dick 🍆🔞 |
 | [ shareyagirlfriend](https://t.me/shareyagirlfriend) | Share Your Girlfriend 🔞 |
 
-### Unlisted
-| Channel | Title |
-| --- | --- |
-| [ peggingmore](https://t.me/peggingmore) | Pegging | Because man need love too |
-| [ sissychitchat](https://t.me/sissychitchat) | Sissy Chat 🍭 for sissies & crossdressers |
-
