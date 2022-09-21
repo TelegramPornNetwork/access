@@ -5,26 +5,31 @@ We are operating 15 different channels, gathering to any of your perverted (lega
 
 
 ### Sexy Vanilla
-
+| Channel | Title |
+| --- | --- |
 | [🍭 tpntestchannel](https://t.me/tpntestchannel) | TPN Test Channel |
 
 ### Kinky
-
+| Channel | Title |
+| --- | --- |
 | [ sissyempire](https://t.me/sissyempire) | Sissy Empire 🎀 |
 | [ sissycaptionsbest](https://t.me/sissycaptionsbest) | Sissy Captions 💋 Hottest Captions for your inner Sissy |
 
 ### Hard & SM
-
+| Channel | Title |
+| --- | --- |
 | [ cuckoldcaptionsbest](https://t.me/cuckoldcaptionsbest) | Cuckold Captions | Learn about your deepest desire |
 | [💾 cuckolddaily](https://t.me/cuckolddaily) | Cuckold | Your wife needs a real man |
 | [ buttsbeautyful](https://t.me/buttsbeautyful) | Juicy Butts | Beautiful Butts, filled, pure & hidden |
 
 ### Sissy
-
+| Channel | Title |
+| --- | --- |
 | [ femdomdaily](https://t.me/femdomdaily) | Femdom | Woman dominating boys & girls |
 
 ### Other
-
+| Channel | Title |
+| --- | --- |
 | [ cuckoldempire](https://t.me/cuckoldempire) | Cuckold Empire |
 | [ chasitycaptions](https://t.me/chasitycaptions) | Chasity Captions | Your Dick Should Be Locked RN! |
 | [ insertobjects](https://t.me/insertobjects) | Insert Objects | Things inserted in body parts |
@@ -33,7 +38,8 @@ We are operating 15 different channels, gathering to any of your perverted (lega
 | [ shareyagirlfriend](https://t.me/shareyagirlfriend) | Share Your Girlfriend 🔞 |
 
 ### Unlisted
-
+| Channel | Title |
+| --- | --- |
 | [ peggingmore](https://t.me/peggingmore) | Pegging | Because man need love too |
 | [ sissychitchat](https://t.me/sissychitchat) | Sissy Chat 🍭 for sissies & crossdressers |
 
