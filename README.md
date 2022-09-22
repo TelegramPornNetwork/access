@@ -1,7 +1,7 @@
 # Telegram Porn Network 🔞 (18+ only)
 
 Welcome to the Telegram Porn Network. If you are looking for your **daily dose of fresh porn** you found the **absolute right place**!
-We are operating 47 different channels, gathering to any of your perverted (legal) needs ;)
+We are operating 48 different channels, gathering to any of your perverted (legal) needs ;)
 
 🔥 Thousands of HQ Pictures, Gifs and Videos, in dozens of categories are awaiting you!
 
@@ -15,8 +15,8 @@ We are operating 47 different channels, gathering to any of your perverted (lega
 | [👧  **@teensteenshot**](https://t.me/teensteenshot) | Sexy Teens \| The hottest 18+ Teens |  |
 | [🍆  **@bigdickweb**](https://t.me/bigdickweb) | Big Dicks \| Everything else is just a clit |  |
 | [🍐  **@chubbycurvy**](https://t.me/chubbycurvy) | Chubby & Curvy \| Real girls aren't thin |  |
-| [💡  **@insertobjects**](https://t.me/insertobjects) | Insert Objects \| Things inserted in body parts |  |
 | [👩‍❤️‍💋‍👩  **@kinkybff**](https://t.me/kinkybff) | Naughty Girl Friends \| BFFs doing kinky things |  |
+| [💡  **@insertobjects**](https://t.me/insertobjects) | Insert Objects \| Things inserted in body parts |  |
 | [🍓  **@petitegirlsbest**](https://t.me/petitegirlsbest) | Petite Girls \| Sometimes less is simply more |  |
 | [👯‍♀️  **@hotgirlsstrip**](https://t.me/hotgirlsstrip) | Hot Girls Stripping 👯‍♀️ \| Hot Girls taking off clothes 🌶 |  |
 | [🌲  **@outdoornudity**](https://t.me/outdoornudity) | Outdoor Sex & Nudity 🌳 Have fun in nature 🌲 |  |
@@ -34,8 +34,8 @@ We are operating 47 different channels, gathering to any of your perverted (lega
 | [👩‍❤️‍👨  **@shareyagirlfriend**](https://t.me/shareyagirlfriend) | Share Your Girlfriend 🔞 | ✅ |
 | [👪  **@inzestcaptions**](https://t.me/inzestcaptions) | Incest Captions \| Taboo Family Fun |  |
 | [🌶️  **@h0twifecaptions**](https://t.me/h0twifecaptions) | Hotwife Captions \| Your Girl Needs More Than One Dick |  |
-| [⚖️  **@law_34**](https://t.me/law_34) | Rule 34 \| If It Exists, There Is Porn Of It |  |
 | [🎭  **@kinkycosplay**](https://t.me/kinkycosplay) | Kinky Cosplay \| Girls in your favorite characters 🎭 |  |
+| [⚖️  **@law_34**](https://t.me/law_34) | Rule 34 \| If It Exists, There Is Porn Of It |  |
 | [🐾  **@furryfap**](https://t.me/furryfap) | Furry, Catgirls & Anthropomorph \| Unleash your inner beast 🐺 |  |
 | [👨‍❤️‍💋‍👨  **@bisexualmmf**](https://t.me/bisexualmmf) | Bisexual / MMF / Bi-Groupsex |  |
 
@@ -63,7 +63,7 @@ We are operating 47 different channels, gathering to any of your perverted (lega
 | [🍭  **@sissychitchat**](https://t.me/sissychitchat) | Sissy Chat 🍭 for sissies & crossdressers | ✅ |
 | [👗  **@sissydress**](https://t.me/sissydress) | Sissies \| Man Crossdressers, Femboys and Sissy Content |  |
 | [💕  **@sissyunlimited**](https://t.me/sissyunlimited) | Sissy Unlimited ✨ CDs, Femboys, Sissies & Boysluts |  |
-| [👀  **@censoredporn**](https://t.me/censoredporn) | Censored Porn - Porn Made Beta Friendly |  |
+| [👀  **@censoredporn**](https://t.me/censoredporn) | Censored Porn \| Porn Made Beta Friendly |  |
 
 ### Other
 | Channel | Title | Chat |
