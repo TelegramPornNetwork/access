@@ -23,8 +23,8 @@ We are operating 48 different channels, gathering to any of your perverted (lega
 | [🍑  **@buttsbeautyful**](https://t.me/buttsbeautyful) | Juicy Butts \| Beautiful Butts, filled, pure & hidden |  |
 | [👸  **@tooohotgirls**](https://t.me/tooohotgirls) | Hot Girls \| Hotter than allowed |  |
 | [🤩  **@deliciouserotik**](https://t.me/deliciouserotik) | Delicious Erotik & Porn |  |
+| [👩‍❤️‍👩  **@sweethotlesbians**](https://t.me/sweethotlesbians) | Sweet & Hot Lesbians 👩‍❤️‍👩\| Sex Between Woman |  |
 | [🎵  **@tiktoks_nsfw**](https://t.me/tiktoks_nsfw) | NSFW TikTok \| The hottest TikToks, 100% Free |  |
-| [👩‍❤️‍👩  **@sweethotlesbians**](https://t.me/sweethotlesbians) | Sweet & Hot Lesbians 👩‍❤️‍👩 Sex Between Woman |  |
 
 ### Kinky
 | Channel | Title | Chat |
