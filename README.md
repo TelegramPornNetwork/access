@@ -1,7 +1,7 @@
 # Telegram Porn Network 🔞 (18+ only)
 
 Welcome to the Telegram Porn Network. If you are looking for your **daily dose of fresh porn** you found the **absolute right place**!
-We are operating 48 different channels, gathering to any of your perverted (legal) needs ;)
+We are operating 57 different channels, gathering to any of your perverted (legal) needs ;)
 
 🔥 Thousands of HQ Pictures, Gifs and Videos, in dozens of categories are awaiting you!
 
@@ -23,8 +23,10 @@ We are operating 48 different channels, gathering to any of your perverted (lega
 | [🍑  **@buttsbeautyful**](https://t.me/buttsbeautyful) | Juicy Butts \| Beautiful Butts, filled, pure & hidden |  |
 | [👸  **@tooohotgirls**](https://t.me/tooohotgirls) | Hot Girls \| Hotter than allowed |  |
 | [🤩  **@deliciouserotik**](https://t.me/deliciouserotik) | Delicious Erotik & Porn |  |
-| [👩‍❤️‍👩  **@sweethotlesbians**](https://t.me/sweethotlesbians) | Sweet & Hot Lesbians 👩‍❤️‍👩\| Sex Between Woman |  |
+| [👩‍❤️‍👩  **@sweethotlesbians**](https://t.me/sweethotlesbians) | Lesbian Galore \|👩‍❤️‍👩 Sex Between Woman |  |
 | [🎵  **@tiktoks_nsfw**](https://t.me/tiktoks_nsfw) | NSFW TikTok \| The hottest TikToks, 100% Free |  |
+| [🌸  **@girlsmasturbate**](https://t.me/girlsmasturbate) | Girls Masturbating \| Woman & Girls Plessuring Themselfs |  |
+| [🌶️  **@slightlysexy**](https://t.me/slightlysexy) | Slightly Sexy \| SFW But Still Hot |  |
 
 ### Kinky
 | Channel | Title | Chat |
@@ -38,6 +40,11 @@ We are operating 48 different channels, gathering to any of your perverted (lega
 | [⚖️  **@law_34**](https://t.me/law_34) | Rule 34 \| If It Exists, There Is Porn Of It |  |
 | [🐾  **@furryfap**](https://t.me/furryfap) | Furry, Catgirls & Anthropomorph \| Unleash your inner beast 🐺 |  |
 | [👨‍❤️‍💋‍👨  **@bisexualmmf**](https://t.me/bisexualmmf) | Bisexual / MMF / Bi-Groupsex |  |
+| [🏳️‍🌈  **@gaycorner**](https://t.me/gaycorner) | Gay Corner \| Men Fucking Men |  |
+| [🥜  **@tinyweeners**](https://t.me/tinyweeners) | Tiny Dicks \| Captions, Pictures & The Hard Reality |  |
+| [👣  **@feetdaily**](https://t.me/feetdaily) | Feet \| 👣 One Body Part Unlike Any Other |  |
+| [👠  **@heelsdaily**](https://t.me/heelsdaily) | Heels & Sexy Shoes \| Hot Woman in Hot Shoes |  |
+| [⚧️  **@transwomandaily**](https://t.me/transwomandaily) | Trans Woman \| Real Girls Can Have A Dick Too! 🍆 |  |
 
 ### Hard & SM
 | Channel | Title | Chat |
@@ -52,8 +59,10 @@ We are operating 48 different channels, gathering to any of your perverted (lega
 | [🐶  **@bdsmpicsvids**](https://t.me/bdsmpicsvids) | BDSM Pics & Videos \| Hard stuff, for SM Fans 👊 |  |
 | [🥨  **@bondagehotness**](https://t.me/bondagehotness) | Bondage Hotness \| Less control is more fun |  |
 | [🤣  **@humiliationcaps**](https://t.me/humiliationcaps) | Humiliation Captions \| Your Are Weak |  |
-| [🔒  **@chasitycaptions**](https://t.me/chasitycaptions) | Chasity Captions \| Your Dick Should Be Locked RN! |  |
+| [🔒  **@chasitycaptions**](https://t.me/chasitycaptions) | Chastity Captions \| Your Dick Should Be Locked RN! |  |
 | [🐓  **@cucktalk**](https://t.me/cucktalk) | Cuckold Chat | ✅ |
+| [🔐  **@chastitydaily**](https://t.me/chastitydaily) | Chastity Daily \| 🔐 Stay Locked! |  |
+| [💥  **@extremedaily**](https://t.me/extremedaily) | Extreme Porn \| When Rough Is Just To Vanilla |  |
 
 ### Sissy
 | Channel | Title | Chat |
