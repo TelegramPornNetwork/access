@@ -16,8 +16,8 @@ We are operating 68 different channels, gathering to any of your perverted (lega
 | [🍆  **@bigdickweb**](https://t.me/bigdickweb) | Big Dicks \| Everything else is just a clit |  |
 | [🍐  **@chubbycurvy**](https://t.me/chubbycurvy) | Chubby & Curvy \| Real girls aren't thin |  |
 | [👩‍❤️‍💋‍👩  **@kinkybff**](https://t.me/kinkybff) | Naughty Girl Friends \| BFFs doing kinky things |  |
-| [💡  **@insertobjects**](https://t.me/insertobjects) | Insert Objects \| Things inserted in body parts |  |
 | [🍓  **@petitegirlsbest**](https://t.me/petitegirlsbest) | Petite Girls \| Sometimes less is simply more |  |
+| [💡  **@insertobjects**](https://t.me/insertobjects) | Insert Objects \| Things inserted in body parts |  |
 | [👯‍♀️  **@hotgirlsstrip**](https://t.me/hotgirlsstrip) | Hot Girls Stripping 👯‍♀️ \| Hot Girls taking off clothes 🌶 |  |
 | [🌲  **@outdoornudity**](https://t.me/outdoornudity) | Outdoor Sex & Nudity 🌳 Have fun in nature 🌲 |  |
 | [🍑  **@buttsbeautyful**](https://t.me/buttsbeautyful) | Juicy Butts \| Beautiful Butts, filled, pure & hidden |  |
@@ -46,15 +46,15 @@ We are operating 68 different channels, gathering to any of your perverted (lega
 | [⚖️  **@law_34**](https://t.me/law_34) | Rule 34 \| If It Exists, There Is Porn Of It |  |
 | [🐾  **@furryfap**](https://t.me/furryfap) | Furry, Catgirls & Anthropomorph \| Unleash your inner beast 🐺 |  |
 | [👨‍❤️‍💋‍👨  **@bisexualmmf**](https://t.me/bisexualmmf) | Bisexual / MMF / Bi-Groupsex |  |
-| [🥜  **@tinyweeners**](https://t.me/tinyweeners) | Tiny Dicks \| Captions, Pictures & The Hard Reality |  |
 | [⚧️  **@transwomandaily**](https://t.me/transwomandaily) | Trans Woman \| Real Girls Can Have A Dick Too! 🍆 |  |
-| [👠  **@heelsdaily**](https://t.me/heelsdaily) | Heels & Sexy Shoes \| Hot Woman in Hot Shoes |  |
+| [🥜  **@tinyweeners**](https://t.me/tinyweeners) | Tiny Dicks \| Captions, Pictures & The Hard Reality |  |
 | [👣  **@feetdaily**](https://t.me/feetdaily) | Feet \| 👣 One Body Part Unlike Any Other |  |
+| [👠  **@heelsdaily**](https://t.me/heelsdaily) | Heels & Sexy Shoes \| Hot Woman in Hot Shoes |  |
 | [📝  **@hotsexcaptions**](https://t.me/hotsexcaptions) | Hot Captions \| Captions To Inspire Your Naughty Thoughts |  |
 | [🖤  **@tattoohotties**](https://t.me/tattoohotties) | Tattoo Hotties \| Hot Woman With Tattoos |  |
+| [📢  **@publickinky**](https://t.me/publickinky) | Public Kinky \| Girls doing naughty things in public |  |
 | [🏳️‍🌈  **@gaycorner**](https://t.me/gaycorner) | Gay Corner \| Men Fucking Men |  |
 | [👶  **@diapersabdl**](https://t.me/diapersabdl) | Diaper \| ABDL, Diapers, Wetting |  |
-| [📢  **@publickinky**](https://t.me/publickinky) | Public Kinky \| Girls doing naughty things in public |  |
 
 ### Hard & SM
 | Channel | Title | Chat |
