@@ -21,13 +21,13 @@ We are operating 68 different channels, gathering to any of your perverted (lega
 | [👯‍♀️  **@hotgirlsstrip**](https://t.me/hotgirlsstrip) | Hot Girls Stripping 👯‍♀️ \| Hot Girls taking off clothes 🌶 |  |
 | [🌲  **@outdoornudity**](https://t.me/outdoornudity) | Outdoor Sex & Nudity 🌳 Have fun in nature 🌲 |  |
 | [🍑  **@buttsbeautyful**](https://t.me/buttsbeautyful) | Juicy Butts \| Beautiful Butts, filled, pure & hidden |  |
-| [🤩  **@deliciouserotik**](https://t.me/deliciouserotik) | Delicious Erotik & Porn |  |
 | [👸  **@tooohotgirls**](https://t.me/tooohotgirls) | Hot Girls \| Hotter than allowed |  |
+| [🤩  **@deliciouserotik**](https://t.me/deliciouserotik) | Delicious Erotik & Porn |  |
 | [🌸  **@girlsmasturbate**](https://t.me/girlsmasturbate) | Girls Masturbating \| Woman & Girls Plessuring Themselfs |  |
 | [👩‍❤️‍👩  **@sweethotlesbians**](https://t.me/sweethotlesbians) | Lesbian Galore \|👩‍❤️‍👩 Sex Between Woman |  |
-| [🍑  **@boobiesdaily**](https://t.me/boobiesdaily) | Boobies \| Tits, Boobies, Milk Machines |  |
 | [💜  **@milfssexy**](https://t.me/milfssexy) | MILFs \| When Hotness Does Age Well |  |
 | [👅  **@blowjobdaily**](https://t.me/blowjobdaily) | Blowjobs \| Girls Enjoying Cock |  |
+| [🍑  **@boobiesdaily**](https://t.me/boobiesdaily) | Boobies \| Tits, Boobies, Milk Machines |  |
 | [👩‍🦰  **@gingerdaily**](https://t.me/gingerdaily) | Redhead Hotness \| Hot Girls With Red Hair ♥️ |  |
 | [🎵  **@tiktoks_nsfw**](https://t.me/tiktoks_nsfw) | NSFW TikTok \| The hottest TikToks, 100% Free |  |
 | [🤎  **@vintagepron**](https://t.me/vintagepron) | Vintage Porn \| Sex Wasnt Invented Yesterday |  |
@@ -51,8 +51,8 @@ We are operating 68 different channels, gathering to any of your perverted (lega
 | [🥜  **@tinyweeners**](https://t.me/tinyweeners) | Tiny Dicks \| Captions, Pictures & The Hard Reality |  |
 | [👣  **@feetdaily**](https://t.me/feetdaily) | Feet \| 👣 One Body Part Unlike Any Other |  |
 | [👠  **@heelsdaily**](https://t.me/heelsdaily) | Heels & Sexy Shoes \| Hot Woman in Hot Shoes |  |
-| [🖤  **@tattoohotties**](https://t.me/tattoohotties) | Tattoo Hotties \| Hot Woman With Tattoos |  |
 | [📝  **@hotsexcaptions**](https://t.me/hotsexcaptions) | Hot Captions \| Captions To Inspire Your Naughty Thoughts |  |
+| [🖤  **@tattoohotties**](https://t.me/tattoohotties) | Tattoo Hotties \| Hot Woman With Tattoos |  |
 | [🏳️‍🌈  **@gaycorner**](https://t.me/gaycorner) | Gay Corner \| Men Fucking Men |  |
 | [👶  **@diapersabdl**](https://t.me/diapersabdl) | Diaper \| ABDL, Diapers, Wetting |  |
 
@@ -70,8 +70,8 @@ We are operating 68 different channels, gathering to any of your perverted (lega
 | [🥨  **@bondagehotness**](https://t.me/bondagehotness) | Bondage Hotness \| Less control is more fun |  |
 | [🤣  **@humiliationcaps**](https://t.me/humiliationcaps) | Humiliation Captions \| Your Are Weak |  |
 | [🔒  **@chasitycaptions**](https://t.me/chasitycaptions) | Chastity Captions \| Your Dick Should Be Locked RN! |  |
-| [🐓  **@cucktalk**](https://t.me/cucktalk) | Cuckold Chat | ✅ |
 | [💥  **@extremedaily**](https://t.me/extremedaily) | Extreme Porn \| When Rough Is Just To Vanilla |  |
+| [🐓  **@cucktalk**](https://t.me/cucktalk) | Cuckold Chat | ✅ |
 | [💥  **@gangbangdaily**](https://t.me/gangbangdaily) | Gangbang & Orgy \| The More The Merrier |  |
 | [🔐  **@chastitydaily**](https://t.me/chastitydaily) | Chastity Daily \| 🔐 Stay Locked! |  |
 
