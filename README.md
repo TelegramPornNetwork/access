@@ -70,9 +70,9 @@ We are operating 68 different channels, gathering to any of your perverted (lega
 | [🥨  **@bondagehotness**](https://t.me/bondagehotness) | Bondage Hotness \| Less control is more fun |  |
 | [🤣  **@humiliationcaps**](https://t.me/humiliationcaps) | Humiliation Captions \| Your Are Weak |  |
 | [🔒  **@chasitycaptions**](https://t.me/chasitycaptions) | Chastity Captions \| Your Dick Should Be Locked RN! |  |
-| [💥  **@extremedaily**](https://t.me/extremedaily) | Extreme Porn \| When Rough Is Just To Vanilla |  |
-| [🐓  **@cucktalk**](https://t.me/cucktalk) | Cuckold Chat | ✅ |
 | [💥  **@gangbangdaily**](https://t.me/gangbangdaily) | Gangbang & Orgy \| The More The Merrier |  |
+| [🐓  **@cucktalk**](https://t.me/cucktalk) | Cuckold Chat | ✅ |
+| [💥  **@extremedaily**](https://t.me/extremedaily) | Extreme Porn \| When Rough Is Just To Vanilla |  |
 | [🔐  **@chastitydaily**](https://t.me/chastitydaily) | Chastity Daily \| 🔐 Stay Locked! |  |
 
 ### Sissy
@@ -90,8 +90,8 @@ We are operating 68 different channels, gathering to any of your perverted (lega
 | --- | --- | --- |
 | [😂  **@lulz18plus**](https://t.me/lulz18plus) | Funny 18+ |  |
 | [🌎  **@datingeverywhere**](https://t.me/datingeverywhere) | Global Dating 🗺️ Dating World Wide | ✅ |
-| [🔥  **@funnywtfday**](https://t.me/funnywtfday) | Funny WTF / #funny #lulz #wtf #crazy +More |  |
 | [🍆  **@shareyadick**](https://t.me/shareyadick) | Share Your Dick 🍆🔞 | ✅ |
+| [🔥  **@funnywtfday**](https://t.me/funnywtfday) | Funny WTF / #funny #lulz #wtf #crazy +More |  |
 
 
 
