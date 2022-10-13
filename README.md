@@ -11,8 +11,8 @@ We are operating 68 different channels, gathering to any of your perverted (lega
 | Channel | Title | Chat |
 | --- | --- | --- |
 | [🍑  **@analbuttsex**](https://t.me/analbuttsex) | Anal Sex \| Take it up your butt |  |
-| [🖤  **@althotness**](https://t.me/althotness) | Alt Girls \| Hot Scene, Emo, Punk & more XXX |  |
 | [👧  **@teensteenshot**](https://t.me/teensteenshot) | Sexy Teens \| The hottest 18+ Teens |  |
+| [🖤  **@althotness**](https://t.me/althotness) | Alt Girls \| Hot Scene, Emo, Punk & more XXX |  |
 | [🍆  **@bigdickweb**](https://t.me/bigdickweb) | Big Dicks \| Everything else is just a clit |  |
 | [🍐  **@chubbycurvy**](https://t.me/chubbycurvy) | Chubby & Curvy \| Real girls aren't thin |  |
 | [👩‍❤️‍💋‍👩  **@kinkybff**](https://t.me/kinkybff) | Naughty Girl Friends \| BFFs doing kinky things |  |
