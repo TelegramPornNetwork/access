@@ -22,8 +22,8 @@ We are operating 68 different channels, gathering to any of your perverted (lega
 | [🌲  **@outdoornudity**](https://t.me/outdoornudity) | Outdoor Sex & Nudity 🌳 Have fun in nature 🌲 |  |
 | [🍑  **@buttsbeautyful**](https://t.me/buttsbeautyful) | Juicy Butts \| Beautiful Butts, filled, pure & hidden |  |
 | [🤩  **@deliciouserotik**](https://t.me/deliciouserotik) | Delicious Erotik & Porn |  |
-| [👸  **@tooohotgirls**](https://t.me/tooohotgirls) | Hot Girls \| Hotter than allowed |  |
 | [🌸  **@girlsmasturbate**](https://t.me/girlsmasturbate) | Girls Masturbating \| Woman & Girls Plessuring Themselfs |  |
+| [👸  **@tooohotgirls**](https://t.me/tooohotgirls) | Hot Girls \| Hotter than allowed |  |
 | [👩‍❤️‍👩  **@sweethotlesbians**](https://t.me/sweethotlesbians) | Lesbian Galore \|👩‍❤️‍👩 Sex Between Woman |  |
 | [💜  **@milfssexy**](https://t.me/milfssexy) | MILFs \| When Hotness Does Age Well |  |
 | [👅  **@blowjobdaily**](https://t.me/blowjobdaily) | Blowjobs \| Girls Enjoying Cock |  |
@@ -80,8 +80,8 @@ We are operating 68 different channels, gathering to any of your perverted (lega
 | --- | --- | --- |
 | [🎀  **@sissyempire**](https://t.me/sissyempire) | Sissy Empire 🎀 |  |
 | [👙  **@sissycaptionsbest**](https://t.me/sissycaptionsbest) | Sissy Captions 💋 Hottest Captions for your inner Sissy |  |
-| [🍭  **@sissychitchat**](https://t.me/sissychitchat) | Sissy Chat 🍭 for sissies & crossdressers | ✅ |
 | [👗  **@sissydress**](https://t.me/sissydress) | Sissies \| Man Crossdressers, Femboys and Sissy Content |  |
+| [🍭  **@sissychitchat**](https://t.me/sissychitchat) | Sissy Chat 🍭 for sissies & crossdressers | ✅ |
 | [💕  **@sissyunlimited**](https://t.me/sissyunlimited) | Sissy Unlimited ✨ CDs, Femboys, Sissies & Boysluts |  |
 | [👀  **@censoredporn**](https://t.me/censoredporn) | Censored Porn \| Porn Made Beta Friendly |  |
 
