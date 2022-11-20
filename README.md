@@ -15,14 +15,14 @@ We are operating 68 different channels, gathering to any of your perverted (lega
 | [🍓  **@petitegirlsbest**](https://t.me/petitegirlsbest) | Petite Girls \| Sometimes less is simply more |  |
 | [🖤  **@althotness**](https://t.me/althotness) | Alt Girls \| Hot Scene, Emo, Punk & more XXX |  |
 | [🍐  **@chubbycurvy**](https://t.me/chubbycurvy) | Chubby & Curvy \| Real girls aren't thin |  |
-| [🍆  **@bigdickweb**](https://t.me/bigdickweb) | Big Dicks \| Everything else is just a clit |  |
 | [👩‍❤️‍💋‍👩  **@kinkybff**](https://t.me/kinkybff) | Naughty Girl Friends \| BFFs doing kinky things |  |
+| [🍆  **@bigdickweb**](https://t.me/bigdickweb) | Big Dicks \| Everything else is just a clit |  |
 | [💡  **@insertobjects**](https://t.me/insertobjects) | Insert Objects \| Things inserted in body parts |  |
 | [👯‍♀️  **@hotgirlsstrip**](https://t.me/hotgirlsstrip) | Hot Girls Stripping 👯‍♀️ \| Hot Girls taking off clothes 🌶 |  |
 | [🌲  **@outdoornudity**](https://t.me/outdoornudity) | Outdoor Sex & Nudity 🌳 Have fun in nature 🌲 |  |
 | [🍑  **@buttsbeautyful**](https://t.me/buttsbeautyful) | Juicy Butts \| Beautiful Butts, filled, pure & hidden |  |
-| [🤩  **@deliciouserotik**](https://t.me/deliciouserotik) | Delicious Erotik & Porn |  |
 | [🌸  **@girlsmasturbate**](https://t.me/girlsmasturbate) | Girls Masturbating \| Woman & Girls Plessuring Themselfs |  |
+| [🤩  **@deliciouserotik**](https://t.me/deliciouserotik) | Delicious Erotik & Porn |  |
 | [👸  **@tooohotgirls**](https://t.me/tooohotgirls) | Hot Girls \| Hotter than allowed |  |
 | [👩‍❤️‍👩  **@sweethotlesbians**](https://t.me/sweethotlesbians) | Lesbian Galore \|👩‍❤️‍👩 Sex Between Woman |  |
 | [💜  **@milfssexy**](https://t.me/milfssexy) | MILFs \| When Hotness Does Age Well |  |
@@ -39,15 +39,14 @@ We are operating 68 different channels, gathering to any of your perverted (lega
 | --- | --- | --- |
 | [👪  **@threesomemore**](https://t.me/threesomemore) | Threesome & Groupsex \| Amateur Orgies, XSomes, DP & much more |  |
 | [💦  **@peegolden**](https://t.me/peegolden) | Pee Fetish \| Golden Shower Magic |  |
-| [👩‍❤️‍👨  **@shareyagirlfriend**](https://t.me/shareyagirlfriend) | Share Your Girlfriend 🔞 | ✅ |
 | [👪  **@inzestcaptions**](https://t.me/inzestcaptions) | Incest Captions \| Taboo Family Fun |  |
 | [🌶️  **@h0twifecaptions**](https://t.me/h0twifecaptions) | Hotwife Captions \| Your Girl Needs More Than One Dick |  |
 | [🎭  **@kinkycosplay**](https://t.me/kinkycosplay) | Kinky Cosplay \| Girls in your favorite characters 🎭 |  |
 | [📢  **@publickinky**](https://t.me/publickinky) | Public Kinky \| Girls doing naughty things in public |  |
 | [⚧️  **@transwomandaily**](https://t.me/transwomandaily) | Trans Woman \| Real Girls Can Have A Dick Too! 🍆 |  |
 | [🐾  **@furryfap**](https://t.me/furryfap) | Furry, Catgirls & Anthropomorph \| Unleash your inner beast 🐺 |  |
-| [⚖️  **@law_34**](https://t.me/law_34) | Rule 34 \| If It Exists, There Is Porn Of It |  |
 | [👨‍❤️‍💋‍👨  **@bisexualmmf**](https://t.me/bisexualmmf) | Bisexual / MMF / Bi-Groupsex |  |
+| [⚖️  **@law_34**](https://t.me/law_34) | Rule 34 \| If It Exists, There Is Porn Of It |  |
 | [🥜  **@tinyweeners**](https://t.me/tinyweeners) | Tiny Dicks \| Captions, Pictures & The Hard Reality |  |
 | [👣  **@feetdaily**](https://t.me/feetdaily) | Feet \| 👣 One Body Part Unlike Any Other |  |
 | [📝  **@hotsexcaptions**](https://t.me/hotsexcaptions) | Hot Captions \| Captions To Inspire Your Naughty Thoughts |  |
@@ -55,6 +54,7 @@ We are operating 68 different channels, gathering to any of your perverted (lega
 | [🏳️‍🌈  **@gaycorner**](https://t.me/gaycorner) | Gay Corner \| Men Fucking Men |  |
 | [👶  **@diapersabdl**](https://t.me/diapersabdl) | Diaper \| ABDL, Diapers, Wetting |  |
 | [🖤  **@tattoohotties**](https://t.me/tattoohotties) | Tattoo Hotties \| Hot Woman With Tattoos |  |
+| [👩‍❤️‍👨  **@shareyagirlfriend**](https://t.me/shareyagirlfriend) | Share Your Girlfriend 🔞 | ✅ |
 
 ### Hard & SM
 | Channel | Title | Chat |
