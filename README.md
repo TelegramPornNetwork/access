@@ -1,7 +1,7 @@
 # Telegram Porn Network 🔞 (18+ only)
 
 Welcome to the Telegram Porn Network. If you are looking for your **daily dose of fresh porn** you found the **absolute right place**!
-We are operating 68 different channels, gathering to any of your perverted (legal) needs ;)
+We are operating 67 different channels, gathering to any of your perverted (legal) needs ;)
 
 🔥 Thousands of HQ Pictures, Gifs and Videos, in dozens of categories are awaiting you!
 
@@ -19,8 +19,8 @@ We are operating 68 different channels, gathering to any of your perverted (lega
 | [🍆  **@bigdickweb**](https://t.me/bigdickweb) | Big Dicks \| Everything else is just a clit |  |
 | [💡  **@insertobjects**](https://t.me/insertobjects) | Insert Objects \| Things inserted in body parts |  |
 | [👯‍♀️  **@hotgirlsstrip**](https://t.me/hotgirlsstrip) | Hot Girls Stripping 👯‍♀️ \| Hot Girls taking off clothes 🌶 |  |
-| [🌲  **@outdoornudity**](https://t.me/outdoornudity) | Outdoor Sex & Nudity 🌳 Have fun in nature 🌲 |  |
 | [🍑  **@buttsbeautyful**](https://t.me/buttsbeautyful) | Juicy Butts \| Beautiful Butts, filled, pure & hidden |  |
+| [🌲  **@outdoornudity**](https://t.me/outdoornudity) | Outdoor Sex & Nudity 🌳 Have fun in nature 🌲 |  |
 | [🌸  **@girlsmasturbate**](https://t.me/girlsmasturbate) | Girls Masturbating \| Woman & Girls Plessuring Themselfs |  |
 | [💜  **@milfssexy**](https://t.me/milfssexy) | MILFs \| When Hotness Does Age Well |  |
 | [👩‍❤️‍👩  **@sweethotlesbians**](https://t.me/sweethotlesbians) | Lesbian Galore \|👩‍❤️‍👩 Sex Between Woman |  |
@@ -54,7 +54,6 @@ We are operating 68 different channels, gathering to any of your perverted (lega
 | [🏳️‍🌈  **@gaycorner**](https://t.me/gaycorner) | Gay Corner \| Men Fucking Men |  |
 | [👶  **@diapersabdl**](https://t.me/diapersabdl) | Diaper \| ABDL, Diapers, Wetting |  |
 | [🖤  **@tattoohotties**](https://t.me/tattoohotties) | Tattoo Hotties \| Hot Woman With Tattoos |  |
-| [👩‍❤️‍👨  **@shareyagirlfriend**](https://t.me/shareyagirlfriend) | Share Your Girlfriend 🔞 | ✅ |
 
 ### Hard & SM
 | Channel | Title | Chat |
