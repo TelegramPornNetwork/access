@@ -14,8 +14,8 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | [👧  **@teensteenshot**](https://t.me/teensteenshot) | Sexy Teens \| The hottest 18+ Teens |  |
 | [🍐  **@chubbycurvy**](https://t.me/chubbycurvy) | Chubby & Curvy \| Real girls aren't thin |  |
 | [🍓  **@petitegirlsbest**](https://t.me/petitegirlsbest) | Petite Girls \| Sometimes less is simply more |  |
-| [🖤  **@althotness**](https://t.me/althotness) | Alt Girls \| Hot Scene, Emo, Punk & more XXX |  |
 | [👩‍❤️‍💋‍👩  **@kinkybff**](https://t.me/kinkybff) | Naughty Girl Friends \| BFFs doing kinky things |  |
+| [🖤  **@althotness**](https://t.me/althotness) | Alt Girls \| Hot Scene, Emo, Punk & more XXX |  |
 | [🍆  **@bigdickweb**](https://t.me/bigdickweb) | Big Dicks \| Everything else is just a clit |  |
 | [💡  **@insertobjects**](https://t.me/insertobjects) | Insert Objects \| Things inserted in body parts |  |
 | [👯‍♀️  **@hotgirlsstrip**](https://t.me/hotgirlsstrip) | Hot Girls Stripping 👯‍♀️ \| Hot Girls taking off clothes 🌶 |  |
@@ -23,8 +23,8 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | [🌲  **@outdoornudity**](https://t.me/outdoornudity) | Outdoor Sex & Nudity 🌳 Have fun in nature 🌲 |  |
 | [🌸  **@girlsmasturbate**](https://t.me/girlsmasturbate) | Girls Masturbating \| Woman & Girls Plessuring Themselfs |  |
 | [💜  **@milfssexy**](https://t.me/milfssexy) | MILFs \| When Hotness Does Age Well |  |
-| [👩‍❤️‍👩  **@sweethotlesbians**](https://t.me/sweethotlesbians) | Lesbian Galore \|👩‍❤️‍👩 Sex Between Woman |  |
 | [🍑  **@boobiesdaily**](https://t.me/boobiesdaily) | Boobies \| Tits, Boobies, Milk Machines |  |
+| [👩‍❤️‍👩  **@sweethotlesbians**](https://t.me/sweethotlesbians) | Lesbian Galore \|👩‍❤️‍👩 Sex Between Woman |  |
 | [👸  **@tooohotgirls**](https://t.me/tooohotgirls) | Hot Girls \| Hotter than allowed |  |
 | [🤩  **@deliciouserotik**](https://t.me/deliciouserotik) | Delicious Erotik & Porn |  |
 | [👅  **@blowjobdaily**](https://t.me/blowjobdaily) | Blowjobs \| Girls Enjoying Cock |  |
@@ -78,8 +78,8 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | Channel | Title | Chat |
 | --- | --- | --- |
 | [🎀  **@sissyempire**](https://t.me/sissyempire) | Sissy Empire 🎀 |  |
-| [👙  **@sissycaptionsbest**](https://t.me/sissycaptionsbest) | Sissy Captions 💋 Hottest Captions for your inner Sissy |  |
 | [👗  **@sissydress**](https://t.me/sissydress) | Sissies \| Man Crossdressers, Femboys and Sissy Content |  |
+| [👙  **@sissycaptionsbest**](https://t.me/sissycaptionsbest) | Sissy Captions 💋 Hottest Captions for your inner Sissy |  |
 | [🍭  **@sissychitchat**](https://t.me/sissychitchat) | Sissy Chat 🍭 for sissies & crossdressers | ✅ |
 | [💕  **@sissyunlimited**](https://t.me/sissyunlimited) | Sissy Unlimited ✨ CDs, Femboys, Sissies & Boysluts |  |
 | [👀  **@censoredporn**](https://t.me/censoredporn) | Censored Porn \| Porn Made Beta Friendly |  |
