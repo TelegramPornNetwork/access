@@ -25,8 +25,8 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | [💜  **@milfssexy**](https://t.me/milfssexy) | MILFs \| When Hotness Does Age Well |  |
 | [🍑  **@boobiesdaily**](https://t.me/boobiesdaily) | Boobies \| Tits, Boobies, Milk Machines |  |
 | [👩‍❤️‍👩  **@sweethotlesbians**](https://t.me/sweethotlesbians) | Lesbian Galore \|👩‍❤️‍👩 Sex Between Woman |  |
-| [🤩  **@deliciouserotik**](https://t.me/deliciouserotik) | Delicious Erotik & Porn |  |
 | [👸  **@tooohotgirls**](https://t.me/tooohotgirls) | Hot Girls \| Hotter than allowed |  |
+| [🤩  **@deliciouserotik**](https://t.me/deliciouserotik) | Delicious Erotik & Porn |  |
 | [👅  **@blowjobdaily**](https://t.me/blowjobdaily) | Blowjobs \| Girls Enjoying Cock |  |
 | [👩‍🦰  **@gingerdaily**](https://t.me/gingerdaily) | Redhead Hotness \| Hot Girls With Red Hair ♥️ |  |
 | [🤎  **@vintagepron**](https://t.me/vintagepron) | Vintage Porn \| Sex Wasnt Invented Yesterday |  |
