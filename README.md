@@ -66,8 +66,8 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | [🌶  **@cuckolddatechat**](https://t.me/cuckolddatechat) | Cuckold Talk & Date Chat *uncensored* 🌶 | ✅ |
 | [🐶  **@bdsmpicsvids**](https://t.me/bdsmpicsvids) | BDSM Pics & Videos \| Hard stuff, for SM Fans 👊 |  |
 | [👸  **@cuckoldempire**](https://t.me/cuckoldempire) | Cuckold Empire |  |
-| [🤣  **@humiliationcaps**](https://t.me/humiliationcaps) | Humiliation Captions \| Your Are Weak |  |
 | [💥  **@extremedaily**](https://t.me/extremedaily) | Extreme Porn \| When Rough Is Just To Vanilla |  |
+| [🤣  **@humiliationcaps**](https://t.me/humiliationcaps) | Humiliation Captions \| Your Are Weak |  |
 | [🥨  **@bondagehotness**](https://t.me/bondagehotness) | Bondage Hotness \| Less control is more fun |  |
 | [💥  **@gangbangdaily**](https://t.me/gangbangdaily) | Gangbang & Orgy \| The More The Merrier |  |
 | [🐓  **@cucktalk**](https://t.me/cucktalk) | Cuckold Chat | ✅ |
@@ -79,8 +79,8 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | --- | --- | --- |
 | [🎀  **@sissyempire**](https://t.me/sissyempire) | Sissy Empire 🎀 |  |
 | [👗  **@sissydress**](https://t.me/sissydress) | Sissies \| Man Crossdressers, Femboys and Sissy Content |  |
-| [👙  **@sissycaptionsbest**](https://t.me/sissycaptionsbest) | Sissy Captions 💋 Hottest Captions for your inner Sissy |  |
 | [🍭  **@sissychitchat**](https://t.me/sissychitchat) | Sissy Chat 🍭 for sissies & crossdressers | ✅ |
+| [👙  **@sissycaptionsbest**](https://t.me/sissycaptionsbest) | Sissy Captions 💋 Hottest Captions for your inner Sissy |  |
 | [💕  **@sissyunlimited**](https://t.me/sissyunlimited) | Sissy Unlimited ✨ CDs, Femboys, Sissies & Boysluts |  |
 | [👀  **@censoredporn**](https://t.me/censoredporn) | Censored Porn \| Porn Made Beta Friendly |  |
 
