@@ -26,8 +26,8 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | [🍑  **@boobiesdaily**](https://t.me/boobiesdaily) | Boobies \| Tits, Boobies, Milk Machines |  |
 | [👩‍❤️‍👩  **@sweethotlesbians**](https://t.me/sweethotlesbians) | Lesbian Galore \|👩‍❤️‍👩 Sex Between Woman |  |
 | [👸  **@tooohotgirls**](https://t.me/tooohotgirls) | Hot Girls \| Hotter than allowed |  |
-| [🤩  **@deliciouserotik**](https://t.me/deliciouserotik) | Delicious Erotik & Porn |  |
 | [👅  **@blowjobdaily**](https://t.me/blowjobdaily) | Blowjobs \| Girls Enjoying Cock |  |
+| [🤩  **@deliciouserotik**](https://t.me/deliciouserotik) | Delicious Erotik & Porn |  |
 | [👩‍🦰  **@gingerdaily**](https://t.me/gingerdaily) | Redhead Hotness \| Hot Girls With Red Hair ♥️ |  |
 | [🤎  **@vintagepron**](https://t.me/vintagepron) | Vintage Porn \| Sex Wasnt Invented Yesterday |  |
 | [🎵  **@tiktoks_nsfw**](https://t.me/tiktoks_nsfw) | NSFW TikTok \| The hottest TikToks, 100% Free |  |
