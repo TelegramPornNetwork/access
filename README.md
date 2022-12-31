@@ -40,8 +40,8 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | [👪  **@threesomemore**](https://t.me/threesomemore) | Threesome & Groupsex \| Amateur Orgies, XSomes, DP & much more |  |
 | [💦  **@peegolden**](https://t.me/peegolden) | Pee Fetish \| Golden Shower Magic |  |
 | [👪  **@inzestcaptions**](https://t.me/inzestcaptions) | Incest Captions \| Taboo Family Fun |  |
-| [🌶️  **@h0twifecaptions**](https://t.me/h0twifecaptions) | Hotwife Captions \| Your Girl Needs More Than One Dick |  |
 | [📢  **@publickinky**](https://t.me/publickinky) | Public Kinky \| Girls doing naughty things in public |  |
+| [🌶️  **@h0twifecaptions**](https://t.me/h0twifecaptions) | Hotwife Captions \| Your Girl Needs More Than One Dick |  |
 | [⚧️  **@transwomandaily**](https://t.me/transwomandaily) | Trans Woman \| Real Girls Can Have A Dick Too! 🍆 |  |
 | [🎭  **@kinkycosplay**](https://t.me/kinkycosplay) | Kinky Cosplay \| Girls in your favorite characters 🎭 |  |
 | [👨‍❤️‍💋‍👨  **@bisexualmmf**](https://t.me/bisexualmmf) | Bisexual / MMF / Bi-Groupsex |  |
@@ -67,8 +67,8 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | [🐶  **@bdsmpicsvids**](https://t.me/bdsmpicsvids) | BDSM Pics & Videos \| Hard stuff, for SM Fans 👊 |  |
 | [👸  **@cuckoldempire**](https://t.me/cuckoldempire) | Cuckold Empire |  |
 | [💥  **@extremedaily**](https://t.me/extremedaily) | Extreme Porn \| When Rough Is Just To Vanilla |  |
-| [🤣  **@humiliationcaps**](https://t.me/humiliationcaps) | Humiliation Captions \| Your Are Weak |  |
 | [💥  **@gangbangdaily**](https://t.me/gangbangdaily) | Gangbang & Orgy \| The More The Merrier |  |
+| [🤣  **@humiliationcaps**](https://t.me/humiliationcaps) | Humiliation Captions \| Your Are Weak |  |
 | [🥨  **@bondagehotness**](https://t.me/bondagehotness) | Bondage Hotness \| Less control is more fun |  |
 | [🐓  **@cucktalk**](https://t.me/cucktalk) | Cuckold Chat | ✅ |
 | [🔒  **@chasitycaptions**](https://t.me/chasitycaptions) | Chastity Captions \| Your Dick Should Be Locked RN! |  |
