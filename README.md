@@ -41,10 +41,10 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | [💦  **@peegolden**](https://t.me/peegolden) | Pee Fetish \| Golden Shower Magic |  |
 | [👪  **@inzestcaptions**](https://t.me/inzestcaptions) | Incest Captions \| Taboo Family Fun |  |
 | [📢  **@publickinky**](https://t.me/publickinky) | Public Kinky \| Girls doing naughty things in public |  |
-| [🌶️  **@h0twifecaptions**](https://t.me/h0twifecaptions) | Hotwife Captions \| Your Girl Needs More Than One Dick |  |
 | [⚧️  **@transwomandaily**](https://t.me/transwomandaily) | Trans Woman \| Real Girls Can Have A Dick Too! 🍆 |  |
-| [🎭  **@kinkycosplay**](https://t.me/kinkycosplay) | Kinky Cosplay \| Girls in your favorite characters 🎭 |  |
+| [🌶️  **@h0twifecaptions**](https://t.me/h0twifecaptions) | Hotwife Captions \| Your Girl Needs More Than One Dick |  |
 | [👨‍❤️‍💋‍👨  **@bisexualmmf**](https://t.me/bisexualmmf) | Bisexual / MMF / Bi-Groupsex |  |
+| [🎭  **@kinkycosplay**](https://t.me/kinkycosplay) | Kinky Cosplay \| Girls in your favorite characters 🎭 |  |
 | [🐾  **@furryfap**](https://t.me/furryfap) | Furry, Catgirls & Anthropomorph \| Unleash your inner beast 🐺 |  |
 | [⚖️  **@law_34**](https://t.me/law_34) | Rule 34 \| If It Exists, There Is Porn Of It |  |
 | [🥜  **@tinyweeners**](https://t.me/tinyweeners) | Tiny Dicks \| Captions, Pictures & The Hard Reality |  |
