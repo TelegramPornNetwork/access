@@ -61,7 +61,6 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | [🐓  **@cuckolddaily**](https://t.me/cuckolddaily) | Cuckold \| Your wife needs a real man |  |
 | [🥒  **@peggingmore**](https://t.me/peggingmore) | Pegging \| Because man need love too |  |
 | [💪  **@roughhardsex**](https://t.me/roughhardsex) | Rough & Hard Sex \| For when standard sex is not enough |  |
-| [🌶  **@cuckolddatechat**](https://t.me/cuckolddatechat) | Cuckold Talk & Date Chat *uncensored* 🌶 | ✅ |
 | [♀️  **@femdomdaily**](https://t.me/femdomdaily) | Femdom \| Woman dominating boys & girls |  |
 | [🐣  **@cuckoldcaptionsbest**](https://t.me/cuckoldcaptionsbest) | Cuckold Captions \| Learn about your deepest desire |  |
 | [🐶  **@bdsmpicsvids**](https://t.me/bdsmpicsvids) | BDSM Pics & Videos \| Hard stuff, for SM Fans 👊 |  |
@@ -73,6 +72,7 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | [🐓  **@cucktalk**](https://t.me/cucktalk) | Cuckold Chat | ✅ |
 | [🔒  **@chasitycaptions**](https://t.me/chasitycaptions) | Chastity Captions \| Your Dick Should Be Locked RN! |  |
 | [🔐  **@chastitydaily**](https://t.me/chastitydaily) | Chastity Daily \| 🔐 Stay Locked! |  |
+| [🌶  **@cuckolddatechat**](https://t.me/cuckolddatechat) | Cuckold Talk & Date Chat *uncensored* 🌶 | ✅ |
 
 ### Sissy
 | Channel | Title | Chat |
