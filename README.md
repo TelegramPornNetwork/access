@@ -18,9 +18,9 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | [🍆  **@bigdickweb**](https://t.me/bigdickweb) | Big Dicks \| Everything else is just a clit |  |
 | [💡  **@insertobjects**](https://t.me/insertobjects) | Insert Objects \| Things inserted in body parts |  |
 | [🖤  **@althotness**](https://t.me/althotness) | Alt Girls \| Hot Scene, Emo, Punk & more XXX |  |
-| [🌲  **@outdoornudity**](https://t.me/outdoornudity) | Outdoor Sex & Nudity 🌳 Have fun in nature 🌲 |  |
-| [👯‍♀️  **@hotgirlsstrip**](https://t.me/hotgirlsstrip) | Hot Girls Stripping 👯‍♀️ \| Hot Girls taking off clothes 🌶 |  |
 | [🍑  **@buttsbeautyful**](https://t.me/buttsbeautyful) | Juicy Butts \| Beautiful Butts, filled, pure & hidden |  |
+| [👯‍♀️  **@hotgirlsstrip**](https://t.me/hotgirlsstrip) | Hot Girls Stripping 👯‍♀️ \| Hot Girls taking off clothes 🌶 |  |
+| [🌲  **@outdoornudity**](https://t.me/outdoornudity) | Outdoor Sex & Nudity 🌳 Have fun in nature 🌲 |  |
 | [🍑  **@boobiesdaily**](https://t.me/boobiesdaily) | Boobies \| Tits, Boobies, Milk Machines |  |
 | [🌸  **@girlsmasturbate**](https://t.me/girlsmasturbate) | Girls Masturbating \| Woman & Girls Plessuring Themselfs |  |
 | [👅  **@blowjobdaily**](https://t.me/blowjobdaily) | Blowjobs \| Girls Enjoying Cock |  |
@@ -67,8 +67,8 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | [🐶  **@bdsmpicsvids**](https://t.me/bdsmpicsvids) | BDSM Pics & Videos \| Hard stuff, for SM Fans 👊 |  |
 | [💥  **@extremedaily**](https://t.me/extremedaily) | Extreme Porn \| When Rough Is Just To Vanilla |  |
 | [💥  **@gangbangdaily**](https://t.me/gangbangdaily) | Gangbang & Orgy \| The More The Merrier |  |
-| [🤣  **@humiliationcaps**](https://t.me/humiliationcaps) | Humiliation Captions \| Your Are Weak |  |
 | [🐓  **@cucktalk**](https://t.me/cucktalk) | Cuckold Chat | ✅ |
+| [🤣  **@humiliationcaps**](https://t.me/humiliationcaps) | Humiliation Captions \| Your Are Weak |  |
 | [🥨  **@bondagehotness**](https://t.me/bondagehotness) | Bondage Hotness \| Less control is more fun |  |
 | [🔒  **@chasitycaptions**](https://t.me/chasitycaptions) | Chastity Captions \| Your Dick Should Be Locked RN! |  |
 | [🔐  **@chastitydaily**](https://t.me/chastitydaily) | Chastity Daily \| 🔐 Stay Locked! |  |
