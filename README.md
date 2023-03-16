@@ -88,8 +88,8 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | Channel | Title | Chat |
 | --- | --- | --- |
 | [😂  **@lulz18plus**](https://t.me/lulz18plus) | Funny 18+ |  |
-| [🌎  **@datingeverywhere**](https://t.me/datingeverywhere) | Global Dating 🗺️ Dating World Wide | ✅ |
 | [🍆  **@shareyadick**](https://t.me/shareyadick) | Share Your Dick 🍆🔞 | ✅ |
+| [🌎  **@datingeverywhere**](https://t.me/datingeverywhere) | Global Dating 🗺️ Dating World Wide | ✅ |
 | [🔥  **@funnywtfday**](https://t.me/funnywtfday) | Funny WTF / #funny #lulz #wtf #crazy +More |  |
 
 
