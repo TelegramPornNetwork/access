@@ -78,11 +78,11 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | Channel | Title | Chat |
 | --- | --- | --- |
 | [🎀  **@sissyempire**](https://t.me/sissyempire) | Sissy Empire 🎀 |  |
-| [🍭  **@sissychitchat**](https://t.me/sissychitchat) | Sissy Chat 🍭 for sissies & crossdressers | ✅ |
 | [👗  **@sissydress**](https://t.me/sissydress) | Sissies \| Man Crossdressers, Femboys and Sissy Content |  |
 | [👙  **@sissycaptionsbest**](https://t.me/sissycaptionsbest) | Sissy Captions 💋 Hottest Captions for your inner Sissy |  |
 | [💕  **@sissyunlimited**](https://t.me/sissyunlimited) | Sissy Unlimited ✨ CDs, Femboys, Sissies & Boysluts |  |
 | [👀  **@censoredporn**](https://t.me/censoredporn) | Censored Porn \| Porn Made Beta Friendly |  |
+| [🍭  **@sissychitchat**](https://t.me/sissychitchat) | Sissy Chat 🍭 for sissies & crossdressers | ✅ |
 
 ### Other
 | Channel | Title | Chat |
