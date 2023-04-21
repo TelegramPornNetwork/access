@@ -1,7 +1,7 @@
 # Telegram Porn Network 🔞 (18+ only)
 
 Welcome to the Telegram Porn Network. If you are looking for your **daily dose of fresh porn** you found the **absolute right place**!
-We are operating 67 different channels, gathering to any of your perverted (legal) needs ;)
+We are operating 66 different channels, gathering to any of your perverted (legal) needs ;)
 
 🔥 Thousands of HQ Pictures, Gifs and Videos, in dozens of categories are awaiting you!
 
@@ -53,6 +53,7 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | [👠  **@heelsdaily**](https://t.me/heelsdaily) | Heels & Sexy Shoes \| Hot Woman in Hot Shoes |  |
 | [🏳️‍🌈  **@gaycorner**](https://t.me/gaycorner) | Gay Corner \| Men Fucking Men |  |
 | [👶  **@diapersabdl**](https://t.me/diapersabdl) | Diaper \| ABDL, Diapers, Wetting |  |
+| [🤰🏼  **@pregnantslutspron**](https://t.me/pregnantslutspron) | Pregnant Sluts |  |
 | [🖤  **@tattoohotties**](https://t.me/tattoohotties) | Tattoo Hotties \| Hot Woman With Tattoos |  |
 
 ### Hard & SM
@@ -63,8 +64,8 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | [💪  **@roughhardsex**](https://t.me/roughhardsex) | Rough & Hard Sex \| For when standard sex is not enough |  |
 | [♀️  **@femdomdaily**](https://t.me/femdomdaily) | Femdom \| Woman dominating boys & girls |  |
 | [👸  **@cuckoldempire**](https://t.me/cuckoldempire) | Cuckold Empire |  |
-| [🐣  **@cuckoldcaptionsbest**](https://t.me/cuckoldcaptionsbest) | Cuckold Captions \| Learn about your deepest desire |  |
 | [💥  **@extremedaily**](https://t.me/extremedaily) | Extreme Porn \| When Rough Is Just To Vanilla |  |
+| [🐣  **@cuckoldcaptionsbest**](https://t.me/cuckoldcaptionsbest) | Cuckold Captions \| Learn about your deepest desire |  |
 | [🐶  **@bdsmpicsvids**](https://t.me/bdsmpicsvids) | BDSM Pics & Videos \| Hard stuff, for SM Fans 👊 |  |
 | [💥  **@gangbangdaily**](https://t.me/gangbangdaily) | Gangbang & Orgy \| The More The Merrier |  |
 | [🐓  **@cucktalk**](https://t.me/cucktalk) | Cuckold Chat | ✅ |
@@ -72,7 +73,6 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | [🥨  **@bondagehotness**](https://t.me/bondagehotness) | Bondage Hotness \| Less control is more fun |  |
 | [🔒  **@chasitycaptions**](https://t.me/chasitycaptions) | Chastity Captions \| Your Dick Should Be Locked RN! |  |
 | [🔐  **@chastitydaily**](https://t.me/chastitydaily) | Chastity Daily \| 🔐 Stay Locked! |  |
-| [🌶  **@cuckolddatechat**](https://t.me/cuckolddatechat) | Cuckold Talk & Date Chat *uncensored* 🌶 | ✅ |
 
 ### Sissy
 | Channel | Title | Chat |
@@ -82,7 +82,6 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | [👙  **@sissycaptionsbest**](https://t.me/sissycaptionsbest) | Sissy Captions 💋 Hottest Captions for your inner Sissy |  |
 | [💕  **@sissyunlimited**](https://t.me/sissyunlimited) | Sissy Unlimited ✨ CDs, Femboys, Sissies & Boysluts |  |
 | [👀  **@censoredporn**](https://t.me/censoredporn) | Censored Porn \| Porn Made Beta Friendly |  |
-| [🍭  **@sissychitchat**](https://t.me/sissychitchat) | Sissy Chat 🍭 for sissies & crossdressers | ✅ |
 
 ### Other
 | Channel | Title | Chat |
