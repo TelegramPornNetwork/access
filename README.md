@@ -52,8 +52,8 @@ We are operating 66 different channels, gathering to any of your perverted (lega
 | [⚖️  **@law_34**](https://t.me/law_34) | Rule 34 \| If It Exists, There Is Porn Of It |  |
 | [👠  **@heelsdaily**](https://t.me/heelsdaily) | Heels & Sexy Shoes \| Hot Woman in Hot Shoes |  |
 | [🏳️‍🌈  **@gaycorner**](https://t.me/gaycorner) | Gay Corner \| Men Fucking Men |  |
-| [👶  **@diapersabdl**](https://t.me/diapersabdl) | Diaper \| ABDL, Diapers, Wetting |  |
 | [🤰🏼  **@pregnantslutspron**](https://t.me/pregnantslutspron) | Pregnant Sluts |  |
+| [👶  **@diapersabdl**](https://t.me/diapersabdl) | Diaper \| ABDL, Diapers, Wetting |  |
 | [🖤  **@tattoohotties**](https://t.me/tattoohotties) | Tattoo Hotties \| Hot Woman With Tattoos |  |
 
 ### Hard & SM
@@ -64,8 +64,8 @@ We are operating 66 different channels, gathering to any of your perverted (lega
 | [💪  **@roughhardsex**](https://t.me/roughhardsex) | Rough & Hard Sex \| For when standard sex is not enough |  |
 | [♀️  **@femdomdaily**](https://t.me/femdomdaily) | Femdom \| Woman dominating boys & girls |  |
 | [👸  **@cuckoldempire**](https://t.me/cuckoldempire) | Cuckold Empire |  |
-| [💥  **@extremedaily**](https://t.me/extremedaily) | Extreme Porn \| When Rough Is Just To Vanilla |  |
 | [🐣  **@cuckoldcaptionsbest**](https://t.me/cuckoldcaptionsbest) | Cuckold Captions \| Learn about your deepest desire |  |
+| [💥  **@extremedaily**](https://t.me/extremedaily) | Extreme Porn \| When Rough Is Just To Vanilla |  |
 | [🐶  **@bdsmpicsvids**](https://t.me/bdsmpicsvids) | BDSM Pics & Videos \| Hard stuff, for SM Fans 👊 |  |
 | [💥  **@gangbangdaily**](https://t.me/gangbangdaily) | Gangbang & Orgy \| The More The Merrier |  |
 | [🐓  **@cucktalk**](https://t.me/cucktalk) | Cuckold Chat | ✅ |
