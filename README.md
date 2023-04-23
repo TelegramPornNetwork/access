@@ -51,8 +51,8 @@ We are operating 66 different channels, gathering to any of your perverted (lega
 | [📝  **@hotsexcaptions**](https://t.me/hotsexcaptions) | Hot Captions \| Captions To Inspire Your Naughty Thoughts |  |
 | [⚖️  **@law_34**](https://t.me/law_34) | Rule 34 \| If It Exists, There Is Porn Of It |  |
 | [👠  **@heelsdaily**](https://t.me/heelsdaily) | Heels & Sexy Shoes \| Hot Woman in Hot Shoes |  |
-| [🏳️‍🌈  **@gaycorner**](https://t.me/gaycorner) | Gay Corner \| Men Fucking Men |  |
 | [🤰🏼  **@pregnantslutspron**](https://t.me/pregnantslutspron) | Pregnant Sluts |  |
+| [🏳️‍🌈  **@gaycorner**](https://t.me/gaycorner) | Gay Corner \| Men Fucking Men |  |
 | [👶  **@diapersabdl**](https://t.me/diapersabdl) | Diaper \| ABDL, Diapers, Wetting |  |
 | [🖤  **@tattoohotties**](https://t.me/tattoohotties) | Tattoo Hotties \| Hot Woman With Tattoos |  |
 
