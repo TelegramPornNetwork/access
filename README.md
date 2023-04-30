@@ -60,8 +60,8 @@ We are operating 66 different channels, gathering to any of your perverted (lega
 | Channel | Title | Chat |
 | --- | --- | --- |
 | [🐓  **@cuckolddaily**](https://t.me/cuckolddaily) | Cuckold \| Your wife needs a real man |  |
-| [🥒  **@peggingmore**](https://t.me/peggingmore) | Pegging \| Because man need love too |  |
 | [💪  **@roughhardsex**](https://t.me/roughhardsex) | Rough & Hard Sex \| For when standard sex is not enough |  |
+| [🥒  **@peggingmore**](https://t.me/peggingmore) | Pegging \| Because man need love too |  |
 | [♀️  **@femdomdaily**](https://t.me/femdomdaily) | Femdom \| Woman dominating boys & girls |  |
 | [👸  **@cuckoldempire**](https://t.me/cuckoldempire) | Cuckold Empire |  |
 | [🐣  **@cuckoldcaptionsbest**](https://t.me/cuckoldcaptionsbest) | Cuckold Captions \| Learn about your deepest desire |  |
