@@ -13,6 +13,7 @@ We are operating 66 different channels, gathering to any of your perverted (lega
 | [👧  **@teensteenshot**](https://t.me/teensteenshot) | Sexy Teens \| The hottest 18+ Teens |  |
 | [🍑  **@analbuttsex**](https://t.me/analbuttsex) | Anal Sex \| Take it up your butt |  |
 | [🍐  **@chubbycurvy**](https://t.me/chubbycurvy) | Chubby & Curvy \| Real girls aren't thin |  |
+| [🍓  **@petitegirlsbest**](https://t.me/petitegirlsbest) | Petite Girls \| Sometimes less is simply more |  |
 | [🍆  **@bigdickweb**](https://t.me/bigdickweb) | Big Dicks \| Everything else is just a clit |  |
 | [💡  **@insertobjects**](https://t.me/insertobjects) | Insert Objects \| Things inserted in body parts |  |
 | [👩‍❤️‍💋‍👩  **@kinkybff**](https://t.me/kinkybff) | Naughty Girl Friends \| BFFs doing kinky things |  |
@@ -32,7 +33,6 @@ We are operating 66 different channels, gathering to any of your perverted (lega
 | [🌶️  **@slightlysexy**](https://t.me/slightlysexy) | Slightly Sexy \| SFW But Still Hot |  |
 | [🎵  **@tiktoks_nsfw**](https://t.me/tiktoks_nsfw) | NSFW TikTok \| The hottest TikToks, 100% Free |  |
 | [📹  **@prongifsdaily**](https://t.me/prongifsdaily) | Hot GIFs \| Animated Short Porn Pictures |  |
-| [🍓  **@petitegirlsbest**](https://t.me/petitegirlsbest) | Petite Girls \| Sometimes less is simply more |  |
 
 ### Kinky
 | Channel | Title | Chat |
