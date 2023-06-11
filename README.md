@@ -14,8 +14,8 @@ We are operating 66 different channels, gathering to any of your perverted (lega
 | [🍑  **@analbuttsex**](https://t.me/analbuttsex) | Anal Sex \| Take it up your butt |  |
 | [🍐  **@chubbycurvy**](https://t.me/chubbycurvy) | Chubby & Curvy \| Real girls aren't thin |  |
 | [🍓  **@petitegirlsbest**](https://t.me/petitegirlsbest) | Petite Girls \| Sometimes less is simply more |  |
-| [🍆  **@bigdickweb**](https://t.me/bigdickweb) | Big Dicks \| Everything else is just a clit |  |
 | [💡  **@insertobjects**](https://t.me/insertobjects) | Insert Objects \| Things inserted in body parts |  |
+| [🍆  **@bigdickweb**](https://t.me/bigdickweb) | Big Dicks \| Everything else is just a clit |  |
 | [👩‍❤️‍💋‍👩  **@kinkybff**](https://t.me/kinkybff) | Naughty Girl Friends \| BFFs doing kinky things |  |
 | [🖤  **@althotness**](https://t.me/althotness) | Alt Girls \| Hot Scene, Emo, Punk & more XXX |  |
 | [🌲  **@outdoornudity**](https://t.me/outdoornudity) | Outdoor Sex & Nudity 🌳 Have fun in nature 🌲 |  |
