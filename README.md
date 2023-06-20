@@ -1,7 +1,7 @@
 # Telegram Porn Network 🔞 (18+ only)
 
 Welcome to the Telegram Porn Network. If you are looking for your **daily dose of fresh porn** you found the **absolute right place**!
-We are operating 66 different channels, gathering to any of your perverted (legal) needs ;)
+We are operating 67 different channels, gathering to any of your perverted (legal) needs ;)
 
 🔥 Thousands of HQ Pictures, Gifs and Videos, in dozens of categories are awaiting you!
 
@@ -22,8 +22,8 @@ We are operating 66 different channels, gathering to any of your perverted (lega
 | [🌸  **@girlsmasturbate**](https://t.me/girlsmasturbate) | Girls Masturbating \| Woman & Girls Plessuring Themselfs |  |
 | [🍑  **@buttsbeautyful**](https://t.me/buttsbeautyful) | Juicy Butts \| Beautiful Butts, filled, pure & hidden |  |
 | [👯‍♀️  **@hotgirlsstrip**](https://t.me/hotgirlsstrip) | Hot Girls Stripping 👯‍♀️ \| Hot Girls taking off clothes 🌶 |  |
-| [🍑  **@boobiesdaily**](https://t.me/boobiesdaily) | Boobies \| Tits, Boobies, Milk Machines |  |
 | [💜  **@milfssexy**](https://t.me/milfssexy) | MILFs \| When Hotness Does Age Well |  |
+| [🍑  **@boobiesdaily**](https://t.me/boobiesdaily) | Boobies \| Tits, Boobies, Milk Machines |  |
 | [👅  **@blowjobdaily**](https://t.me/blowjobdaily) | Blowjobs \| Girls Enjoying Cock |  |
 | [👩‍❤️‍👩  **@sweethotlesbians**](https://t.me/sweethotlesbians) | Lesbian Galore \|👩‍❤️‍👩 Sex Between Woman |  |
 | [👩‍🦰  **@gingerdaily**](https://t.me/gingerdaily) | Redhead Hotness \| Hot Girls With Red Hair ♥️ |  |
@@ -45,8 +45,8 @@ We are operating 66 different channels, gathering to any of your perverted (lega
 | [👨‍❤️‍💋‍👨  **@bisexualmmf**](https://t.me/bisexualmmf) | Bisexual / MMF / Bi-Groupsex |  |
 | [🌶️  **@h0twifecaptions**](https://t.me/h0twifecaptions) | Hotwife Captions \| Your Girl Needs More Than One Dick |  |
 | [🎭  **@kinkycosplay**](https://t.me/kinkycosplay) | Kinky Cosplay \| Girls in your favorite characters 🎭 |  |
-| [🐾  **@furryfap**](https://t.me/furryfap) | Furry, Catgirls & Anthropomorph \| Unleash your inner beast 🐺 |  |
 | [🤰🏼  **@pregnantslutspron**](https://t.me/pregnantslutspron) | Pregnant Sluts |  |
+| [🐾  **@furryfap**](https://t.me/furryfap) | Furry, Catgirls & Anthropomorph \| Unleash your inner beast 🐺 |  |
 | [🥜  **@tinyweeners**](https://t.me/tinyweeners) | Tiny Dicks \| Captions, Pictures & The Hard Reality |  |
 | [👣  **@feetdaily**](https://t.me/feetdaily) | Feet \| 👣 One Body Part Unlike Any Other |  |
 | [📝  **@hotsexcaptions**](https://t.me/hotsexcaptions) | Hot Captions \| Captions To Inspire Your Naughty Thoughts |  |
@@ -90,6 +90,7 @@ We are operating 66 different channels, gathering to any of your perverted (lega
 | [🍆  **@shareyadick**](https://t.me/shareyadick) | Share Your Dick 🍆🔞 | ✅ |
 | [🌎  **@datingeverywhere**](https://t.me/datingeverywhere) | Global Dating 🗺️ Dating World Wide | ✅ |
 | [🔥  **@funnywtfday**](https://t.me/funnywtfday) | Funny WTF / #funny #lulz #wtf #crazy +More |  |
+| [🤖  **@aisluts**](https://t.me/aisluts) | AI Generated Sluts |  |
 
 
 
