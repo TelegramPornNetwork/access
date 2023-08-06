@@ -11,8 +11,8 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | Channel | Title | Chat |
 | --- | --- | --- |
 | [👧  **@teensteenshot**](https://t.me/teensteenshot) | Sexy Teens \| The hottest 18+ Teens |  |
-| [🍑  **@analbuttsex**](https://t.me/analbuttsex) | Anal Sex \| Take it up your butt |  |
 | [🍐  **@chubbycurvy**](https://t.me/chubbycurvy) | Chubby & Curvy \| Real girls aren't thin |  |
+| [🍑  **@analbuttsex**](https://t.me/analbuttsex) | Anal Sex \| Take it up your butt |  |
 | [🍓  **@petitegirlsbest**](https://t.me/petitegirlsbest) | Petite Girls \| Sometimes less is simply more |  |
 | [💡  **@insertobjects**](https://t.me/insertobjects) | Insert Objects \| Things inserted in body parts |  |
 | [🍆  **@bigdickweb**](https://t.me/bigdickweb) | Big Dicks \| Everything else is just a clit |  |
@@ -27,10 +27,10 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | [🤩  **@deliciouserotik**](https://t.me/deliciouserotik) | Delicious Erotik & Porn |  |
 | [🌶️  **@slightlysexy**](https://t.me/slightlysexy) | Slightly Sexy \| SFW But Still Hot |  |
 | [🎵  **@tiktoks_nsfw**](https://t.me/tiktoks_nsfw) | NSFW TikTok \| The hottest TikToks, 100% Free |  |
-| [👅  **@blowjobdaily**](https://t.me/blowjobdaily) | Blowjobs \| Girls Enjoying Cock |  |
 | [🤎  **@vintagepron**](https://t.me/vintagepron) | Vintage Porn \| Sex Wasnt Invented Yesterday |  |
-| [📹  **@prongifsdaily**](https://t.me/prongifsdaily) | Hot GIFs \| Animated Short Porn Pictures |  |
 | [👩‍🦰  **@gingerdaily**](https://t.me/gingerdaily) | Redhead Hotness \| Hot Girls With Red Hair ♥️ |  |
+| [👅  **@blowjobdaily**](https://t.me/blowjobdaily) | Blowjobs \| Girls Enjoying Cock |  |
+| [📹  **@prongifsdaily**](https://t.me/prongifsdaily) | Hot GIFs \| Animated Short Porn Pictures |  |
 | [🍑  **@boobiesdaily**](https://t.me/boobiesdaily) | Boobies \| Tits, Boobies, Milk Machines |  |
 | [💜  **@milfssexy**](https://t.me/milfssexy) | MILFs \| When Hotness Does Age Well |  |
 
@@ -53,8 +53,8 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | [⚖️  **@law_34**](https://t.me/law_34) | Rule 34 \| If It Exists, There Is Porn Of It |  |
 | [🏳️‍🌈  **@gaycorner**](https://t.me/gaycorner) | Gay Corner \| Men Fucking Men |  |
 | [👶  **@diapersabdl**](https://t.me/diapersabdl) | Diaper \| ABDL, Diapers, Wetting |  |
-| [📢  **@publickinky**](https://t.me/publickinky) | Public Kinky \| Girls doing naughty things in public |  |
 | [🖤  **@tattoohotties**](https://t.me/tattoohotties) | Tattoo Hotties \| Hot Woman With Tattoos |  |
+| [📢  **@publickinky**](https://t.me/publickinky) | Public Kinky \| Girls doing naughty things in public |  |
 
 ### Hard & SM
 | Channel | Title | Chat |
