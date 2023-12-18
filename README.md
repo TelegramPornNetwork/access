@@ -16,8 +16,8 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | [🍓  **@petitegirlsbest**](https://t.me/petitegirlsbest) | Petite Girls \| Sometimes less is simply more |  |
 | [💡  **@insertobjects**](https://t.me/insertobjects) | Insert Objects \| Things inserted in body parts |  |
 | [🌲  **@outdoornudity**](https://t.me/outdoornudity) | Outdoor Sex & Nudity 🌳 Have fun in nature 🌲 |  |
-| [🍆  **@bigdickweb**](https://t.me/bigdickweb) | Big Dicks \| Everything else is just a clit |  |
 | [🖤  **@althotness**](https://t.me/althotness) | Alt Girls \| Hot Scene, Emo, Punk & more XXX |  |
+| [🍆  **@bigdickweb**](https://t.me/bigdickweb) | Big Dicks \| Everything else is just a clit |  |
 | [👩‍❤️‍💋‍👩  **@kinkybff**](https://t.me/kinkybff) | Naughty Girl Friends \| BFFs doing kinky things |  |
 | [🌸  **@girlsmasturbate**](https://t.me/girlsmasturbate) | Girls Masturbating \| Woman & Girls Plessuring Themselfs |  |
 | [🍑  **@buttsbeautyful**](https://t.me/buttsbeautyful) | Juicy Butts \| Beautiful Butts, filled, pure & hidden |  |
@@ -27,12 +27,12 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | [🤩  **@deliciouserotik**](https://t.me/deliciouserotik) | Delicious Erotik & Porn |  |
 | [🌶️  **@slightlysexy**](https://t.me/slightlysexy) | Slightly Sexy \| SFW But Still Hot |  |
 | [🎵  **@tiktoks_nsfw**](https://t.me/tiktoks_nsfw) | NSFW TikTok \| The hottest TikToks, 100% Free |  |
+| [💜  **@milfssexy**](https://t.me/milfssexy) | MILFs \| When Hotness Does Age Well |  |
 | [📹  **@prongifsdaily**](https://t.me/prongifsdaily) | Hot GIFs \| Animated Short Porn Pictures |  |
-| [🤎  **@vintagepron**](https://t.me/vintagepron) | Vintage Porn \| Sex Wasnt Invented Yesterday |  |
 | [👅  **@blowjobdaily**](https://t.me/blowjobdaily) | Blowjobs \| Girls Enjoying Cock |  |
 | [🍑  **@boobiesdaily**](https://t.me/boobiesdaily) | Boobies \| Tits, Boobies, Milk Machines |  |
+| [🤎  **@vintagepron**](https://t.me/vintagepron) | Vintage Porn \| Sex Wasnt Invented Yesterday |  |
 | [👩‍🦰  **@gingerdaily**](https://t.me/gingerdaily) | Redhead Hotness \| Hot Girls With Red Hair ♥️ |  |
-| [💜  **@milfssexy**](https://t.me/milfssexy) | MILFs \| When Hotness Does Age Well |  |
 
 ### Kinky
 | Channel | Title | Chat |
@@ -52,9 +52,9 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | [👠  **@heelsdaily**](https://t.me/heelsdaily) | Heels & Sexy Shoes \| Hot Woman in Hot Shoes |  |
 | [🏳️‍🌈  **@gaycorner**](https://t.me/gaycorner) | Gay Corner \| Men Fucking Men |  |
 | [⚖️  **@law_34**](https://t.me/law_34) | Rule 34 \| If It Exists, There Is Porn Of It |  |
+| [📢  **@publickinky**](https://t.me/publickinky) | Public Kinky \| Girls doing naughty things in public |  |
 | [🖤  **@tattoohotties**](https://t.me/tattoohotties) | Tattoo Hotties \| Hot Woman With Tattoos |  |
 | [👶  **@diapersabdl**](https://t.me/diapersabdl) | Diaper \| ABDL, Diapers, Wetting |  |
-| [📢  **@publickinky**](https://t.me/publickinky) | Public Kinky \| Girls doing naughty things in public |  |
 
 ### Hard & SM
 | Channel | Title | Chat |
