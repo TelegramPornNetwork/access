@@ -28,11 +28,11 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | [🌶️  **@slightlysexy**](https://t.me/slightlysexy) | Slightly Sexy \| SFW But Still Hot |  |
 | [🎵  **@tiktoks_nsfw**](https://t.me/tiktoks_nsfw) | NSFW TikTok \| The hottest TikToks, 100% Free |  |
 | [💜  **@milfssexy**](https://t.me/milfssexy) | MILFs \| When Hotness Does Age Well |  |
-| [🤎  **@vintagepron**](https://t.me/vintagepron) | Vintage Porn \| Sex Wasnt Invented Yesterday |  |
 | [🍑  **@boobiesdaily**](https://t.me/boobiesdaily) | Boobies \| Tits, Boobies, Milk Machines |  |
+| [👅  **@blowjobdaily**](https://t.me/blowjobdaily) | Blowjobs \| Girls Enjoying Cock |  |
 | [👩‍🦰  **@gingerdaily**](https://t.me/gingerdaily) | Redhead Hotness \| Hot Girls With Red Hair ♥️ |  |
 | [📹  **@prongifsdaily**](https://t.me/prongifsdaily) | Hot GIFs \| Animated Short Porn Pictures |  |
-| [👅  **@blowjobdaily**](https://t.me/blowjobdaily) | Blowjobs \| Girls Enjoying Cock |  |
+| [🤎  **@vintagepron**](https://t.me/vintagepron) | Vintage Porn \| Sex Wasnt Invented Yesterday |  |
 
 ### Kinky
 | Channel | Title | Chat |
@@ -87,8 +87,8 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | Channel | Title | Chat |
 | --- | --- | --- |
 | [😂  **@lulz18plus**](https://t.me/lulz18plus) | Funny 18+ |  |
-| [🌎  **@**](https://t.me/) | Global Dating 🗺️ Dating World Wide | ✅ |
 | [🤖  **@aisluts**](https://t.me/aisluts) | AI Generated Sluts |  |
+| [🌎  **@**](https://t.me/) | Global Dating 🗺️ Dating World Wide | ✅ |
 | [🔥  **@funnywtfday**](https://t.me/funnywtfday) | Funny WTF / #funny #lulz #wtf #crazy +More |  |
 | [🍆  **@shareyadick**](https://t.me/shareyadick) | Share Your Dick 🍆🔞 | ✅ |
 
