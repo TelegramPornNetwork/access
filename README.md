@@ -27,12 +27,12 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | [🤩  **@deliciouserotik**](https://t.me/deliciouserotik) | Delicious Erotik & Porn |  |
 | [🌶️  **@slightlysexy**](https://t.me/slightlysexy) | Slightly Sexy \| SFW But Still Hot |  |
 | [🎵  **@tiktoks_nsfw**](https://t.me/tiktoks_nsfw) | NSFW TikTok \| The hottest TikToks, 100% Free |  |
-| [👅  **@blowjobdaily**](https://t.me/blowjobdaily) | Blowjobs \| Girls Enjoying Cock |  |
-| [🍑  **@boobiesdaily**](https://t.me/boobiesdaily) | Boobies \| Tits, Boobies, Milk Machines |  |
-| [🤎  **@vintagepron**](https://t.me/vintagepron) | Vintage Porn \| Sex Wasnt Invented Yesterday |  |
-| [📹  **@prongifsdaily**](https://t.me/prongifsdaily) | Hot GIFs \| Animated Short Porn Pictures |  |
 | [👩‍🦰  **@gingerdaily**](https://t.me/gingerdaily) | Redhead Hotness \| Hot Girls With Red Hair ♥️ |  |
 | [💜  **@milfssexy**](https://t.me/milfssexy) | MILFs \| When Hotness Does Age Well |  |
+| [🤎  **@vintagepron**](https://t.me/vintagepron) | Vintage Porn \| Sex Wasnt Invented Yesterday |  |
+| [📹  **@prongifsdaily**](https://t.me/prongifsdaily) | Hot GIFs \| Animated Short Porn Pictures |  |
+| [👅  **@blowjobdaily**](https://t.me/blowjobdaily) | Blowjobs \| Girls Enjoying Cock |  |
+| [🍑  **@boobiesdaily**](https://t.me/boobiesdaily) | Boobies \| Tits, Boobies, Milk Machines |  |
 
 ### Kinky
 | Channel | Title | Chat |
@@ -60,7 +60,6 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | Channel | Title | Chat |
 | --- | --- | --- |
 | [🐓  **@cuckolddaily**](https://t.me/cuckolddaily) | Cuckold \| Your wife needs a real man |  |
-| [🥒  **@peggingmore**](https://t.me/peggingmore) | Pegging \| Because man need love too |  |
 | [💪  **@roughhardsex**](https://t.me/roughhardsex) | Rough & Hard Sex \| For when standard sex is not enough |  |
 | [♀️  **@femdomdaily**](https://t.me/femdomdaily) | Femdom \| Woman dominating boys & girls |  |
 | [👸  **@cuckoldempire**](https://t.me/cuckoldempire) | Cuckold Empire |  |
@@ -73,6 +72,7 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | [🔐  **@chastitydaily**](https://t.me/chastitydaily) | Chastity Daily \| 🔐 Stay Locked! |  |
 | [💥  **@gangbangdaily**](https://t.me/gangbangdaily) | Gangbang & Orgy \| The More The Merrier |  |
 | [🐓  **@cucktalk**](https://t.me/cucktalk) | Cuckold Chat | ✅ |
+| [🥒  **@peggingmore**](https://t.me/peggingmore) | Pegging \| Because man need love too |  |
 
 ### Sissy
 | Channel | Title | Chat |
