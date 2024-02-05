@@ -20,19 +20,19 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | [🍆  **@bigdickweb**](https://t.me/bigdickweb) | Big Dicks \| Everything else is just a clit |  |
 | [🌸  **@girlsmasturbate**](https://t.me/girlsmasturbate) | Girls Masturbating \| Woman & Girls Plessuring Themselfs |  |
 | [👩‍❤️‍💋‍👩  **@kinkybff**](https://t.me/kinkybff) | Naughty Girl Friends \| BFFs doing kinky things |  |
-| [🍑  **@buttsbeautyful**](https://t.me/buttsbeautyful) | Juicy Butts \| Beautiful Butts, filled, pure & hidden |  |
 | [👯‍♀️  **@hotgirlsstrip**](https://t.me/hotgirlsstrip) | Hot Girls Stripping 👯‍♀️ \| Hot Girls taking off clothes 🌶 |  |
+| [🍑  **@buttsbeautyful**](https://t.me/buttsbeautyful) | Juicy Butts \| Beautiful Butts, filled, pure & hidden |  |
 | [👩‍❤️‍👩  **@sweethotlesbians**](https://t.me/sweethotlesbians) | Lesbian Galore \|👩‍❤️‍👩 Sex Between Woman |  |
 | [👸  **@tooohotgirls**](https://t.me/tooohotgirls) | Hot Girls \| Hotter than allowed |  |
 | [🤩  **@deliciouserotik**](https://t.me/deliciouserotik) | Delicious Erotik & Porn |  |
 | [🌶️  **@slightlysexy**](https://t.me/slightlysexy) | Slightly Sexy \| SFW But Still Hot |  |
 | [🎵  **@tiktoks_nsfw**](https://t.me/tiktoks_nsfw) | NSFW TikTok \| The hottest TikToks, 100% Free |  |
+| [🍑  **@boobiesdaily**](https://t.me/boobiesdaily) | Boobies \| Tits, Boobies, Milk Machines |  |
 | [👩‍🦰  **@gingerdaily**](https://t.me/gingerdaily) | Redhead Hotness \| Hot Girls With Red Hair ♥️ |  |
 | [📹  **@prongifsdaily**](https://t.me/prongifsdaily) | Hot GIFs \| Animated Short Porn Pictures |  |
+| [💜  **@milfssexy**](https://t.me/milfssexy) | MILFs \| When Hotness Does Age Well |  |
 | [🤎  **@vintagepron**](https://t.me/vintagepron) | Vintage Porn \| Sex Wasnt Invented Yesterday |  |
 | [👅  **@blowjobdaily**](https://t.me/blowjobdaily) | Blowjobs \| Girls Enjoying Cock |  |
-| [🍑  **@boobiesdaily**](https://t.me/boobiesdaily) | Boobies \| Tits, Boobies, Milk Machines |  |
-| [💜  **@milfssexy**](https://t.me/milfssexy) | MILFs \| When Hotness Does Age Well |  |
 
 ### Kinky
 | Channel | Title | Chat |
@@ -71,8 +71,8 @@ We are operating 67 different channels, gathering to any of your perverted (lega
 | [🔒  **@chasitycaptions**](https://t.me/chasitycaptions) | Chastity Captions \| Your Dick Should Be Locked RN! |  |
 | [🔐  **@chastitydaily**](https://t.me/chastitydaily) | Chastity Daily \| 🔐 Stay Locked! |  |
 | [💥  **@gangbangdaily**](https://t.me/gangbangdaily) | Gangbang & Orgy \| The More The Merrier |  |
-| [🥒  **@peggingmore**](https://t.me/peggingmore) | Pegging \| Because man need love too |  |
 | [🐓  **@cucktalk**](https://t.me/cucktalk) | Cuckold Chat | ✅ |
+| [🥒  **@peggingmore**](https://t.me/peggingmore) | Pegging \| Because man need love too |  |
 
 ### Sissy
 | Channel | Title | Chat |
