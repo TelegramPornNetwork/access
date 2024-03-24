@@ -19,26 +19,26 @@ We are operating 81 different channels, gathering to any of your perverted (lega
 | [🖤  **@althotness**](https://t.me/althotness) | Alt Girls \| Hot Scene, Emo, Punk & more XXX |  |
 | [🍆  **@bigdickweb**](https://t.me/bigdickweb) | Big Dicks \| Everything else is just a clit |  |
 | [🌸  **@girlsmasturbate**](https://t.me/girlsmasturbate) | Girls Masturbating \| Woman & Girls Plessuring Themselfs |  |
-| [👯‍♀️  **@hotgirlsstrip**](https://t.me/hotgirlsstrip) | Hot Girls Stripping 👯‍♀️ \| Hot Girls taking off clothes 🌶 |  |
 | [🍑  **@buttsbeautyful**](https://t.me/buttsbeautyful) | Juicy Butts \| Beautiful Butts, filled, pure & hidden |  |
+| [👯‍♀️  **@hotgirlsstrip**](https://t.me/hotgirlsstrip) | Hot Girls Stripping 👯‍♀️ \| Hot Girls taking off clothes 🌶 |  |
 | [👩‍❤️‍💋‍👩  **@kinkybff**](https://t.me/kinkybff) | Naughty Girl Friends \| BFFs doing kinky things |  |
 | [👩‍❤️‍👩  **@sweethotlesbians**](https://t.me/sweethotlesbians) | Lesbian Galore \|👩‍❤️‍👩 Sex Between Woman |  |
 | [👸  **@tooohotgirls**](https://t.me/tooohotgirls) | Hot Girls \| Hotter than allowed |  |
 | [🤩  **@deliciouserotik**](https://t.me/deliciouserotik) | Delicious Erotik & Porn |  |
 | [🌶️  **@slightlysexy**](https://t.me/slightlysexy) | Slightly Sexy \| SFW But Still Hot |  |
 | [🎵  **@tiktoks_nsfw**](https://t.me/tiktoks_nsfw) | NSFW TikTok \| The hottest TikToks, 100% Free |  |
-| [🌬️  **@blowjobsw**](https://t.me/blowjobsw) | Blowjobs 🌬️ |  |
-| [🧡  **@milfsdo**](https://t.me/milfsdo) | MILFs 🧡 More experience, more sexy 🔞 |  |
 | [🍈  **@titsboobies**](https://t.me/titsboobies) | Boobies, Tits & Breasts 🍈🍈 🔞 |  |
-| [📺  **@vintagesexworld**](https://t.me/vintagesexworld) | Vintage Pr0n 📺 Hot things from times ago 🔞 |  |
-| [🔥  **@gingerhotgirls**](https://t.me/gingerhotgirls) | Ginger Hotness 🔥 A extra little fire 🔞 |  |
+| [🧡  **@milfsdo**](https://t.me/milfsdo) | MILFs 🧡 More experience, more sexy 🔞 |  |
+| [🌬️  **@blowjobsw**](https://t.me/blowjobsw) | Blowjobs 🌬️ |  |
 | [🐲  **@tattoohotgirls**](https://t.me/tattoohotgirls) | Tattoo Hotties 🐲 Sexy Bodies with Hot Tattoos 🔞 |  |
+| [📺  **@vintagesexworld**](https://t.me/vintagesexworld) | Vintage Pr0n \|📺 Hot things from times ago 🔞 |  |
+| [🔥  **@gingerhotgirls**](https://t.me/gingerhotgirls) | Ginger Hotness 🔥 A extra little fire 🔞 |  |
 | [🍑  **@boobiesdaily**](https://t.me/boobiesdaily) | Boobies \| Tits, Boobies, Milk Machines |  |
 | [🤎  **@vintagepron**](https://t.me/vintagepron) | Vintage Porn \| Sex Wasnt Invented Yesterday |  |
-| [📹  **@prongifsdaily**](https://t.me/prongifsdaily) | Hot GIFs \| Animated Short Porn Pictures |  |
+| [💜  **@milfssexy**](https://t.me/milfssexy) | MILFs \| When Hotness Does Age Well |  |
 | [👩‍🦰  **@gingerdaily**](https://t.me/gingerdaily) | Redhead Hotness \| Hot Girls With Red Hair ♥️ |  |
 | [👅  **@blowjobdaily**](https://t.me/blowjobdaily) | Blowjobs \| Girls Enjoying Cock |  |
-| [💜  **@milfssexy**](https://t.me/milfssexy) | MILFs \| When Hotness Does Age Well |  |
+| [📹  **@prongifsdaily**](https://t.me/prongifsdaily) | Hot GIFs \| Animated Short Porn Pictures |  |
 
 ### Kinky
 | Channel | Title | Chat |
@@ -56,14 +56,14 @@ We are operating 81 different channels, gathering to any of your perverted (lega
 | [👠  **@heelsdaily**](https://t.me/heelsdaily) | Heels & Sexy Shoes \| Hot Woman in Hot Shoes |  |
 | [🏳️‍🌈  **@gaycorner**](https://t.me/gaycorner) | Gay Corner \| Men Fucking Men |  |
 | [⚖️  **@law_34**](https://t.me/law_34) | Rule 34 \| If It Exists, There Is Porn Of It |  |
-| [🍼  **@diaperfunadults**](https://t.me/diaperfunadults) | Fun With Diapers 🍼🔞 |  |
-| [😜  **@publickinkworld**](https://t.me/publickinkworld) | Public Kink 🔞 don't get caught 😜 |  |
 | [🌭  **@peggingforboys**](https://t.me/peggingforboys) | Pegging 🌭 real man take it up the ass 🔞 |  |
+| [😜  **@publickinkworld**](https://t.me/publickinkworld) | Public Kink 🔞 don't get caught 😜 |  |
+| [🍼  **@diaperfunadults**](https://t.me/diaperfunadults) | Fun With Diapers 🍼🔞 |  |
 | [🖤  **@tattoohotties**](https://t.me/tattoohotties) | Tattoo Hotties \| Hot Woman With Tattoos |  |
-| [👪  **@inzestcaptions**](https://t.me/inzestcaptions) | Incest Captions \| Taboo Family Fun |  |
-| [🌶️  **@h0twifecaptions**](https://t.me/h0twifecaptions) | Hotwife Captions \| Your Girl Needs More Than One Dick |  |
 | [👶  **@diapersabdl**](https://t.me/diapersabdl) | Diaper \| ABDL, Diapers, Wetting |  |
 | [📢  **@publickinky**](https://t.me/publickinky) | Public Kinky \| Girls doing naughty things in public |  |
+| [🌶️  **@h0twifecaptions**](https://t.me/h0twifecaptions) | Hotwife Captions \| Your Girl Needs More Than One Dick |  |
+| [👪  **@inzestcaptions**](https://t.me/inzestcaptions) | Incest Captions \| Taboo Family Fun |  |
 
 ### Hard & SM
 | Channel | Title | Chat |
@@ -77,9 +77,9 @@ We are operating 81 different channels, gathering to any of your perverted (lega
 | [🐶  **@bdsmpicsvids**](https://t.me/bdsmpicsvids) | BDSM Pics & Videos \| Hard stuff, for SM Fans 👊 |  |
 | [🥨  **@bondagehotness**](https://t.me/bondagehotness) | Bondage Hotness \| Less control is more fun |  |
 | [🔐  **@chastitydaily**](https://t.me/chastitydaily) | Chastity Daily \| 🔐 Stay Locked! |  |
+| [💥  **@gangbangmore**](https://t.me/gangbangmore) | Gangbang 💥 More is more 🔞 |  |
 | [😅  **@humilationforpussy**](https://t.me/humilationforpussy) | Humiliation Captions 😅 you weak little bastard 🔞 |  |
 | [🌶️  **@hotwifecaps**](https://t.me/hotwifecaps) | Hotwife Captions 🌶️ |  |
-| [💥  **@gangbangmore**](https://t.me/gangbangmore) | Gangbang 💥 More is more 🔞 |  |
 | [💥  **@gangbangdaily**](https://t.me/gangbangdaily) | Gangbang & Orgy \| The More The Merrier |  |
 | [🤣  **@humiliationcaps**](https://t.me/humiliationcaps) | Humiliation Captions \| Your Are Weak |  |
 | [🥒  **@peggingmore**](https://t.me/peggingmore) | Pegging \| Because man need love too |  |
