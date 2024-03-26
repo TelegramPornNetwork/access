@@ -31,14 +31,14 @@ We are operating 81 different channels, gathering to any of your perverted (lega
 | [🧡  **@milfsdo**](https://t.me/milfsdo) | MILFs 🧡 More experience, more sexy 🔞 |  |
 | [🌬️  **@blowjobsw**](https://t.me/blowjobsw) | Blowjobs 🌬️ |  |
 | [🔥  **@gingerhotgirls**](https://t.me/gingerhotgirls) | Ginger Hotness 🔥 A extra little fire 🔞 |  |
-| [🐲  **@tattoohotgirls**](https://t.me/tattoohotgirls) | Tattoo Hotties 🐲 Sexy Bodies with Hot Tattoos 🔞 |  |
 | [📺  **@vintagesexworld**](https://t.me/vintagesexworld) | Vintage Pr0n \|📺 Hot things from times ago 🔞 |  |
+| [🐲  **@tattoohotgirls**](https://t.me/tattoohotgirls) | Tattoo Hotties 🐲 Sexy Bodies with Hot Tattoos 🔞 |  |
 | [🍑  **@boobiesdaily**](https://t.me/boobiesdaily) | Boobies \| Tits, Boobies, Milk Machines |  |
-| [👅  **@blowjobdaily**](https://t.me/blowjobdaily) | Blowjobs \| Girls Enjoying Cock |  |
-| [🤎  **@vintagepron**](https://t.me/vintagepron) | Vintage Porn \| Sex Wasnt Invented Yesterday |  |
 | [💜  **@milfssexy**](https://t.me/milfssexy) | MILFs \| When Hotness Does Age Well |  |
 | [👩‍🦰  **@gingerdaily**](https://t.me/gingerdaily) | Redhead Hotness \| Hot Girls With Red Hair ♥️ |  |
+| [👅  **@blowjobdaily**](https://t.me/blowjobdaily) | Blowjobs \| Girls Enjoying Cock |  |
 | [📹  **@prongifsdaily**](https://t.me/prongifsdaily) | Hot GIFs \| Animated Short Porn Pictures |  |
+| [🤎  **@vintagepron**](https://t.me/vintagepron) | Vintage Porn \| Sex Wasnt Invented Yesterday |  |
 
 ### Kinky
 | Channel | Title | Chat |
@@ -60,10 +60,10 @@ We are operating 81 different channels, gathering to any of your perverted (lega
 | [😜  **@publickinkworld**](https://t.me/publickinkworld) | Public Kink 🔞 don't get caught 😜 |  |
 | [🍼  **@diaperfunadults**](https://t.me/diaperfunadults) | Fun With Diapers 🍼🔞 |  |
 | [🖤  **@tattoohotties**](https://t.me/tattoohotties) | Tattoo Hotties \| Hot Woman With Tattoos |  |
+| [👶  **@diapersabdl**](https://t.me/diapersabdl) | Diaper \| ABDL, Diapers, Wetting |  |
 | [🌶️  **@h0twifecaptions**](https://t.me/h0twifecaptions) | Hotwife Captions \| Your Girl Needs More Than One Dick |  |
 | [👪  **@inzestcaptions**](https://t.me/inzestcaptions) | Incest Captions \| Taboo Family Fun |  |
 | [📢  **@publickinky**](https://t.me/publickinky) | Public Kinky \| Girls doing naughty things in public |  |
-| [👶  **@diapersabdl**](https://t.me/diapersabdl) | Diaper \| ABDL, Diapers, Wetting |  |
 
 ### Hard & SM
 | Channel | Title | Chat |
@@ -80,11 +80,11 @@ We are operating 81 different channels, gathering to any of your perverted (lega
 | [💥  **@gangbangmore**](https://t.me/gangbangmore) | Gangbang 💥 More is more 🔞 |  |
 | [😅  **@humilationforpussy**](https://t.me/humilationforpussy) | Humiliation Captions 😅 you weak little bastard 🔞 |  |
 | [🌶️  **@hotwifecaps**](https://t.me/hotwifecaps) | Hotwife Captions 🌶️ |  |
-| [🥒  **@peggingmore**](https://t.me/peggingmore) | Pegging \| Because man need love too |  |
-| [💥  **@gangbangdaily**](https://t.me/gangbangdaily) | Gangbang & Orgy \| The More The Merrier |  |
 | [🔒  **@chasitycaptions**](https://t.me/chasitycaptions) | Chastity Captions \| Your Dick Should Be Locked RN! |  |
+| [🥒  **@peggingmore**](https://t.me/peggingmore) | Pegging \| Because man need love too |  |
 | [🤣  **@humiliationcaps**](https://t.me/humiliationcaps) | Humiliation Captions \| Your Are Weak |  |
 | [🐓  **@cucktalk**](https://t.me/cucktalk) | Cuckold Chat | ✅ |
+| [💥  **@gangbangdaily**](https://t.me/gangbangdaily) | Gangbang & Orgy \| The More The Merrier |  |
 
 ### Sissy
 | Channel | Title | Chat |
@@ -103,8 +103,8 @@ We are operating 81 different channels, gathering to any of your perverted (lega
 | [🌎  **@**](https://t.me/) | Global Dating 🗺️ Dating World Wide | ✅ |
 | [🔥  **@funnywtfday**](https://t.me/funnywtfday) | Funny WTF / #funny #lulz #wtf #crazy +More |  |
 | [💕  **@wincestfake**](https://t.me/wincestfake) | Fake (Wincest) 💕 Family means fun 🔞 |  |
-| [🍆  **@shareyadick**](https://t.me/shareyadick) | Share Your Dick 🍆🔞 | ✅ |
 | [😂  **@lulz18plus**](https://t.me/lulz18plus) | Funny 18+ |  |
+| [🍆  **@shareyadick**](https://t.me/shareyadick) | Share Your Dick 🍆🔞 | ✅ |
 
 
 
