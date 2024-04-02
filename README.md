@@ -33,12 +33,12 @@ We are operating 81 different channels, gathering to any of your perverted (lega
 | [🔥  **@gingerhotgirls**](https://t.me/gingerhotgirls) | Ginger Hotness 🔥 A extra little fire 🔞 |  |
 | [🐲  **@tattoohotgirls**](https://t.me/tattoohotgirls) | Tattoo Hotties 🐲 Sexy Bodies with Hot Tattoos 🔞 |  |
 | [📺  **@vintagesexworld**](https://t.me/vintagesexworld) | Vintage Pr0n \|📺 Hot things from times ago 🔞 |  |
-| [🤎  **@vintagepron**](https://t.me/vintagepron) | Vintage Porn \| Sex Wasnt Invented Yesterday |  |
+| [🍑  **@boobiesdaily**](https://t.me/boobiesdaily) | Boobies \| Tits, Boobies, Milk Machines |  |
 | [💜  **@milfssexy**](https://t.me/milfssexy) | MILFs \| When Hotness Does Age Well |  |
+| [📹  **@prongifsdaily**](https://t.me/prongifsdaily) | Hot GIFs \| Animated Short Porn Pictures |  |
+| [🤎  **@vintagepron**](https://t.me/vintagepron) | Vintage Porn \| Sex Wasnt Invented Yesterday |  |
 | [👩‍🦰  **@gingerdaily**](https://t.me/gingerdaily) | Redhead Hotness \| Hot Girls With Red Hair ♥️ |  |
 | [👅  **@blowjobdaily**](https://t.me/blowjobdaily) | Blowjobs \| Girls Enjoying Cock |  |
-| [🍑  **@boobiesdaily**](https://t.me/boobiesdaily) | Boobies \| Tits, Boobies, Milk Machines |  |
-| [📹  **@prongifsdaily**](https://t.me/prongifsdaily) | Hot GIFs \| Animated Short Porn Pictures |  |
 
 ### Kinky
 | Channel | Title | Chat |
@@ -59,11 +59,11 @@ We are operating 81 different channels, gathering to any of your perverted (lega
 | [🌭  **@peggingforboys**](https://t.me/peggingforboys) | Pegging 🌭 real man take it up the ass 🔞 |  |
 | [😜  **@publickinkworld**](https://t.me/publickinkworld) | Public Kink 🔞 don't get caught 😜 |  |
 | [🍼  **@diaperfunadults**](https://t.me/diaperfunadults) | Fun With Diapers 🍼🔞 |  |
-| [👶  **@diapersabdl**](https://t.me/diapersabdl) | Diaper \| ABDL, Diapers, Wetting |  |
 | [🌶️  **@h0twifecaptions**](https://t.me/h0twifecaptions) | Hotwife Captions \| Your Girl Needs More Than One Dick |  |
 | [👪  **@inzestcaptions**](https://t.me/inzestcaptions) | Incest Captions \| Taboo Family Fun |  |
 | [📢  **@publickinky**](https://t.me/publickinky) | Public Kinky \| Girls doing naughty things in public |  |
 | [🖤  **@tattoohotties**](https://t.me/tattoohotties) | Tattoo Hotties \| Hot Woman With Tattoos |  |
+| [👶  **@diapersabdl**](https://t.me/diapersabdl) | Diaper \| ABDL, Diapers, Wetting |  |
 
 ### Hard & SM
 | Channel | Title | Chat |
@@ -80,11 +80,11 @@ We are operating 81 different channels, gathering to any of your perverted (lega
 | [💥  **@gangbangmore**](https://t.me/gangbangmore) | Gangbang 💥 More is more 🔞 |  |
 | [😅  **@humilationforpussy**](https://t.me/humilationforpussy) | Humiliation Captions 😅 you weak little bastard 🔞 |  |
 | [🌶️  **@hotwifecaps**](https://t.me/hotwifecaps) | Hotwife Captions 🌶️ |  |
-| [🥒  **@peggingmore**](https://t.me/peggingmore) | Pegging \| Because man need love too |  |
-| [🔒  **@chasitycaptions**](https://t.me/chasitycaptions) | Chastity Captions \| Your Dick Should Be Locked RN! |  |
 | [🤣  **@humiliationcaps**](https://t.me/humiliationcaps) | Humiliation Captions \| Your Are Weak |  |
-| [🐓  **@cucktalk**](https://t.me/cucktalk) | Cuckold Chat | ✅ |
+| [🔒  **@chasitycaptions**](https://t.me/chasitycaptions) | Chastity Captions \| Your Dick Should Be Locked RN! |  |
 | [💥  **@gangbangdaily**](https://t.me/gangbangdaily) | Gangbang & Orgy \| The More The Merrier |  |
+| [🐓  **@cucktalk**](https://t.me/cucktalk) | Cuckold Chat | ✅ |
+| [🥒  **@peggingmore**](https://t.me/peggingmore) | Pegging \| Because man need love too |  |
 
 ### Sissy
 | Channel | Title | Chat |
