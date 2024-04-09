@@ -28,17 +28,17 @@ We are operating 81 different channels, gathering to any of your perverted (lega
 | [🌶️  **@slightlysexy**](https://t.me/slightlysexy) | Slightly Sexy \| SFW But Still Hot |  |
 | [🎵  **@tiktoks_nsfw**](https://t.me/tiktoks_nsfw) | NSFW TikTok \| The hottest TikToks, 100% Free |  |
 | [🌬️  **@blowjobsw**](https://t.me/blowjobsw) | Blowjobs 🌬️ |  |
-| [🍑  **@boobiesdaily**](https://t.me/boobiesdaily) | Boobies \| Tits, Boobies, Milk Machines |  |
+| [🍈  **@titsboobies**](https://t.me/titsboobies) | Boobies, Tits & Breasts 🍈🍈 🔞 |  |
+| [🧡  **@milfsdo**](https://t.me/milfsdo) | MILFs 🧡 More experience, more sexy 🔞 |  |
 | [📺  **@vintagesexworld**](https://t.me/vintagesexworld) | Vintage Pr0n \|📺 Hot things from times ago 🔞 |  |
 | [🔥  **@gingerhotgirls**](https://t.me/gingerhotgirls) | Ginger Hotness 🔥 A extra little fire 🔞 |  |
-| [🧡  **@milfsdo**](https://t.me/milfsdo) | MILFs 🧡 More experience, more sexy 🔞 |  |
-| [🍈  **@titsboobies**](https://t.me/titsboobies) | Boobies, Tits & Breasts 🍈🍈 🔞 |  |
-| [💜  **@milfssexy**](https://t.me/milfssexy) | MILFs \| When Hotness Does Age Well |  |
 | [🤎  **@vintagepron**](https://t.me/vintagepron) | Vintage Porn \| Sex Wasnt Invented Yesterday |  |
-| [🐲  **@tattoohotgirls**](https://t.me/tattoohotgirls) | Tattoo Hotties 🐲 Sexy Bodies with Hot Tattoos 🔞 |  |
-| [👩‍🦰  **@gingerdaily**](https://t.me/gingerdaily) | Redhead Hotness \| Hot Girls With Red Hair ♥️ |  |
-| [👅  **@blowjobdaily**](https://t.me/blowjobdaily) | Blowjobs \| Girls Enjoying Cock |  |
 | [📹  **@prongifsdaily**](https://t.me/prongifsdaily) | Hot GIFs \| Animated Short Porn Pictures |  |
+| [👩‍🦰  **@gingerdaily**](https://t.me/gingerdaily) | Redhead Hotness \| Hot Girls With Red Hair ♥️ |  |
+| [🐲  **@tattoohotgirls**](https://t.me/tattoohotgirls) | Tattoo Hotties 🐲 Sexy Bodies with Hot Tattoos 🔞 |  |
+| [🍑  **@boobiesdaily**](https://t.me/boobiesdaily) | Boobies \| Tits, Boobies, Milk Machines |  |
+| [👅  **@blowjobdaily**](https://t.me/blowjobdaily) | Blowjobs \| Girls Enjoying Cock |  |
+| [💜  **@milfssexy**](https://t.me/milfssexy) | MILFs \| When Hotness Does Age Well |  |
 
 ### Kinky
 | Channel | Title | Chat |
@@ -57,12 +57,12 @@ We are operating 81 different channels, gathering to any of your perverted (lega
 | [🏳️‍🌈  **@gaycorner**](https://t.me/gaycorner) | Gay Corner \| Men Fucking Men |  |
 | [⚖️  **@law_34**](https://t.me/law_34) | Rule 34 \| If It Exists, There Is Porn Of It |  |
 | [🌭  **@peggingforboys**](https://t.me/peggingforboys) | Pegging 🌭 real man take it up the ass 🔞 |  |
-| [🌶️  **@h0twifecaptions**](https://t.me/h0twifecaptions) | Hotwife Captions \| Your Girl Needs More Than One Dick |  |
+| [📢  **@publickinky**](https://t.me/publickinky) | Public Kinky \| Girls doing naughty things in public |  |
 | [🍼  **@diaperfunadults**](https://t.me/diaperfunadults) | Fun With Diapers 🍼🔞 |  |
 | [😜  **@publickinkworld**](https://t.me/publickinkworld) | Public Kink 🔞 don't get caught 😜 |  |
-| [🖤  **@tattoohotties**](https://t.me/tattoohotties) | Tattoo Hotties \| Hot Woman With Tattoos |  |
-| [📢  **@publickinky**](https://t.me/publickinky) | Public Kinky \| Girls doing naughty things in public |  |
+| [🌶️  **@h0twifecaptions**](https://t.me/h0twifecaptions) | Hotwife Captions \| Your Girl Needs More Than One Dick |  |
 | [👶  **@diapersabdl**](https://t.me/diapersabdl) | Diaper \| ABDL, Diapers, Wetting |  |
+| [🖤  **@tattoohotties**](https://t.me/tattoohotties) | Tattoo Hotties \| Hot Woman With Tattoos |  |
 | [👪  **@inzestcaptions**](https://t.me/inzestcaptions) | Incest Captions \| Taboo Family Fun |  |
 
 ### Hard & SM
@@ -81,10 +81,10 @@ We are operating 81 different channels, gathering to any of your perverted (lega
 | [😅  **@humilationforpussy**](https://t.me/humilationforpussy) | Humiliation Captions 😅 you weak little bastard 🔞 |  |
 | [🌶️  **@hotwifecaps**](https://t.me/hotwifecaps) | Hotwife Captions 🌶️ |  |
 | [💥  **@gangbangdaily**](https://t.me/gangbangdaily) | Gangbang & Orgy \| The More The Merrier |  |
-| [🔒  **@chasitycaptions**](https://t.me/chasitycaptions) | Chastity Captions \| Your Dick Should Be Locked RN! |  |
 | [🐓  **@cucktalk**](https://t.me/cucktalk) | Cuckold Chat | ✅ |
 | [🥒  **@peggingmore**](https://t.me/peggingmore) | Pegging \| Because man need love too |  |
 | [🤣  **@humiliationcaps**](https://t.me/humiliationcaps) | Humiliation Captions \| Your Are Weak |  |
+| [🔒  **@chasitycaptions**](https://t.me/chasitycaptions) | Chastity Captions \| Your Dick Should Be Locked RN! |  |
 
 ### Sissy
 | Channel | Title | Chat |
